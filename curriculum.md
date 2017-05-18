@@ -1,4 +1,5 @@
-# Youth Gospel Study Curriculum
+# Curriculum
+
 ## Table of Contents
 
 Week | Topic
