@@ -15,7 +15,7 @@
 [Week 10](weeks/week-10.md) | [How do I develop Christlike Attributes?](weeks/week-10.md)
 [Week 11](weeks/week-11.md) | [? ](weeks/week-11.md)
 
-| head1        | head two          | three |
+| Week | head two          | three |
 |:-------------|:------------------|:------|
 | ok           | good swedish fish | nice  |
 | out of stock | good and plenty   | nice  |
