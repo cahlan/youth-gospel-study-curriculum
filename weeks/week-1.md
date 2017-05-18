@@ -42,10 +42,50 @@ D&C 130:22; John 14:26; Moroni 10:5; D&C 88:3; Moroni 10:8–18; Bible Dictionar
 
 Ask your parents to share experiences where they felt the Holy Ghost. Ask them how the Gift of the Holy Ghost has blessed their lives. Write down their answers.
 
-## June 1
+## June 1: The Power of the Spirit in Conversion
 
-## June 2
+### Reflection Questions
 
-## June 3
+Why is the Spirit so important in conversion? What role does it play in conversion?
 
-## June 4
+### Study
+
+2 Nephi 33:1-2; D&C 42:11-17; D&C 50:13-22; Acts 2:37-38; 1 Corinthians 2:11-14
+
+### Activities/Challenges
+
+## June 2: Pray with Faith
+
+### Reflection Questions
+
+What does it mean to pray with faith? Why must I pray in faith? 
+
+### Study
+
+D&C 42:14; 2 Nephi 33:1; Moroni 7:48; Moroni 10:3–4; D&C 8:10; 9:7; 3 Nephi 19:24; D&C 46:28, 30
+
+### Activities/Challenges
+
+## June 3: Learn to Recognize the Promptings of the Spirit
+
+### Reflection Questions
+
+How can I recognize the promptings of the Spirit?
+
+### Study
+
+3 Ne. 11:3; Hel. 5:30; D&C 85:6–7; 1 Kgs. 19:12
+
+### Activities/Challenges
+
+## June 4: Learn to Recognize teh Promptings of the Spirit (cont'd)
+
+### Reflection Questions
+
+How can I recognize the promptings of the Spirit?
+
+### Study
+
+3 Ne. 11:3; Hel. 5:30; D&C 85:6–7; "How to Obtain Revelation and Inspiration for Your Personal Life," Richard G. Scott
+
+### Activities/Challenges
