@@ -4,6 +4,12 @@
 @import "{{ site.theme }}";
 
 #banner {
+  .fork {
+    background-color: inherit;
+    .button {
+      background-color: #FFE788;
+    }
+  }
 }
 
 h2 {
