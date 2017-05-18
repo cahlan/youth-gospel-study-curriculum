@@ -4,6 +4,8 @@
 
 ### Reflection Questions
 
+What was my life like before my time on earth? What is God's plan for me?
+
 ### Study
 
 D&C 93:29; Acts 17:29; Moses 1:39; John 17:3; D&C 138:53-56; Moses 3:5; Abraham 3:22-26; Jeremiah 1:5
@@ -13,6 +15,8 @@ D&C 93:29; Acts 17:29; Moses 1:39; John 17:3; D&C 138:53-56; Moses 3:5; Abraham 
 ## June 6: The Creation
 
 ### Reflection Questions
+
+What does the creation teach me about God? What importance does the creation have in God's Plan of Happiness?
 
 ### Study
 
@@ -24,6 +28,8 @@ D&C 93:29; Acts 17:29; Moses 1:39; John 17:3; D&C 138:53-56; Moses 3:5; Abraham 
 
 ### Reflection Questions
 
+Why was agency important to Father's plan? How does Adam and Eve's choice affect me now? In what ways does my experience mirror Adam or Eve's?
+
 ### Study
 
 2 Nephi 2; Moses 2:26–31; Moses 3:15–17; Moses 5:11; Alma 12:22-34; Moses 4; Genesis 3
@@ -33,6 +39,8 @@ D&C 93:29; Acts 17:29; Moses 1:39; John 17:3; D&C 138:53-56; Moses 3:5; Abraham 
 ## June 8: Our Life on Earth
 
 ### Reflection Questions
+
+Why am I here? How does knowing my purpose on earth help me each day?
 
 ### Study
 
@@ -44,6 +52,8 @@ D&C 93:29; Acts 17:29; Moses 1:39; John 17:3; D&C 138:53-56; Moses 3:5; Abraham 
 
 ### Reflection Questions
 
+Why do I have need for a Redeemer? What does the Savior's Atonement mean to me?
+
 ### Study
 
 2 Nephi 2:6–8; Alma 7:11–13; Alma 34:8–10; D&C 19:15–19; D&C 45:3–5; John 3:16–17; 1 John 1:7
@@ -54,6 +64,8 @@ D&C 93:29; Acts 17:29; Moses 1:39; John 17:3; D&C 138:53-56; Moses 3:5; Abraham 
 
 ### Reflection Questions
 
+What will existence be like after this life? What is the purpose of the Spirit World?
+
 ### Study
 
 D&C 138; 1 Peter 3:19–20; 1 Peter 4:6; Alma 34:34; Alma 40:11–14; Ecclesiastes 12:7
@@ -63,6 +75,8 @@ D&C 138; 1 Peter 3:19–20; 1 Peter 4:6; Alma 34:34; Alma 40:11–14; Ecclesiast
 ## June 11: The Resurrection, Judgement, and Immortality + Kingdoms of Glory 
 
 ### Reflection Questions
+
+What will happen at the final judgement? What kinds of people will inherit the various kingdoms of glory?
 
 ### Study
 
