@@ -3,7 +3,7 @@
 
 Week | Topic
 :---|:---
-[Week 1](weeks/week-1.md) | [How do I recognize the Spirit?](weeks/week-1.md)
+[Week 1](weeks/week-1.md) | [How do I recognize the Spirit?](weeks/week-1.md){:target="_blank"}
 [Week 2](weeks/week-2.md) | [The Plan of Salvation](weeks/week-2.md)
 [Week 3](weeks/week-3.md) | [The Gospel of Jesus Christ](weeks/week-3.md)
 [Week 4](weeks/week-4.md) | [The Commandments](weeks/week-4.md)
