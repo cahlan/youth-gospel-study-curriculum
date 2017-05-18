@@ -84,7 +84,7 @@ How can I recognize the promptings of the Spirit?
 
 Read ["The Spirit of Revelation,"](https://www.lds.org/general-conference/2011/04/the-spirit-of-revelation?lang=eng&) by Elder Bednar, list the differing ways that Elder Bednar describes that revelation or light comes. Under each of those ways, list specific examples you can think of where you've felt the Spirit in those ways (if applicable).
 
-## June 4: Learn to Recognize teh Promptings of the Spirit (cont'd)
+## June 4: Learn to Recognize the Promptings of the Spirit (cont'd)
 
 ### Reflection Questions
 
@@ -98,6 +98,7 @@ How can I recognize the promptings of the Spirit?
 
 Study the table below from Preach my Gospel that lists functions of the Spirit, write down times you've felt the Spirit communicate with you in the ways listed.
 
+Scriptures | Functions of the Spirit
 :---|:---
 D&C 6:23; 11:12–14; Romans 15:13; Galatians 5:22–23 | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
 D&C 8:2–3 | Gives ideas in the mind, feelings in the heart.
