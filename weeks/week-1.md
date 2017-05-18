@@ -68,7 +68,7 @@ D&C 42:14; 2 Nephi 33:1; Moroni 7:48; Moroni 10:3–4; D&C 8:10; 9:7; 3 Nephi 19
 
 ### Activities/Challenges
 
-Ponder the role of faith and prayer with the Holy Ghost. Where would you place your prayers on this scale? Where would you like to be on this scale? How are you going to change? ![Prayer scale image, Preach My Gospel](https://www.lds.org/bc/content/shared/content/images/gospel-library/manual/36617_000_004_03-prayerScale.gif)
+Ponder the role of faith and prayer with the Holy Ghost. Where would you place your prayers on the scale below (from Preach My Gospel)? Where would you like to be on this scale? How are you going to change? ![Prayer scale image, Preach My Gospel](https://www.lds.org/bc/content/shared/content/images/gospel-library/manual/36617_000_004_03-prayerScale.gif)
 
 ## June 3: Learn to Recognize the Promptings of the Spirit
 
@@ -92,12 +92,13 @@ How can I recognize the promptings of the Spirit?
 
 ### Study
 
-3 Ne. 11:3; Hel. 5:30; D&C 85:6–7; "How to Obtain Revelation and Inspiration for Your Personal Life," Richard G. Scott
+3 Ne. 11:3; Hel. 5:30; D&C 85:6–7; ["How to Obtain Revelation and Inspiration for Your Personal Life," Richard G. Scott](https://www.lds.org/general-conference/2012/04/how-to-obtain-revelation-and-inspiration-for-your-personal-life?lang=eng)
 
 ### Activities/Challenges
 
 Study the table below from Preach my Gospel that lists functions of the Spirit, write down times you've felt the Spirit communicate with you in the ways listed.
 
+:---|:---
 D&C 6:23; 11:12–14; Romans 15:13; Galatians 5:22–23 | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
 D&C 8:2–3 | Gives ideas in the mind, feelings in the heart.
 D&C 128:1 | Occupies the mind and presses on the feelings.
