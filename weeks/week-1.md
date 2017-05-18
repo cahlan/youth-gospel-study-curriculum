@@ -54,6 +54,8 @@ Why is the Spirit so important in conversion? What role does it play in conversi
 
 ### Activities/Challenges
 
+Record thoughts about the following questions: How has the Spirit helped me to be converted? How will I know when I am converted?
+
 ## June 2: Pray with Faith
 
 ### Reflection Questions
@@ -65,6 +67,8 @@ What does it mean to pray with faith? Why must I pray in faith?
 D&C 42:14; 2 Nephi 33:1; Moroni 7:48; Moroni 10:3–4; D&C 8:10; 9:7; 3 Nephi 19:24; D&C 46:28, 30
 
 ### Activities/Challenges
+
+Ponder the role of faith and prayer with the Holy Ghost. Where would you place your prayers on this scale? Where would you like to be on this scale? How are you going to change? ![Prayer scale image, Preach My Gospel](https://www.lds.org/bc/content/shared/content/images/gospel-library/manual/36617_000_004_03-prayerScale.gif)
 
 ## June 3: Learn to Recognize the Promptings of the Spirit
 
@@ -78,6 +82,8 @@ How can I recognize the promptings of the Spirit?
 
 ### Activities/Challenges
 
+Read ["The Spirit of Revelation,"](https://www.lds.org/general-conference/2011/04/the-spirit-of-revelation?lang=eng&) by Elder Bednar, list the differing ways that Elder Bednar describes that revelation or light comes. Under each of those ways, list specific examples you can think of where you've felt the Spirit in those ways (if applicable).
+
 ## June 4: Learn to Recognize teh Promptings of the Spirit (cont'd)
 
 ### Reflection Questions
@@ -89,3 +95,34 @@ How can I recognize the promptings of the Spirit?
 3 Ne. 11:3; Hel. 5:30; D&C 85:6–7; "How to Obtain Revelation and Inspiration for Your Personal Life," Richard G. Scott
 
 ### Activities/Challenges
+
+Study the table below from Preach my Gospel that lists functions of the Spirit, write down times you've felt the Spirit communicate with you in the ways listed.
+
+D&C 6:23; 11:12–14; Romans 15:13; Galatians 5:22–23 | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
+D&C 8:2–3 | Gives ideas in the mind, feelings in the heart.
+D&C 128:1 | Occupies the mind and presses on the feelings.
+Joseph Smith—History 1:11–12 | Helps scriptures have strong effect.
+D&C 9:8–9 | Gives good feelings to teach if something is true.
+Alma 32:28; D&C 6:14–15; 1 Corinthians 2:9–11 | Enlightens the mind.
+Alma 19:6 | Replaces darkness with light.
+Mosiah 5:2–5 | Strengthens the desire to avoid evil and obey the commandments.
+John 14:26 | Teaches truth and brings it to remembrance.
+John 14:27 | Gives feelings of peace and comfort.
+John 16:13 | Guides to truth and shows things to come.
+Moroni 10:5 | Reveals truth.
+D&C 45:57 | Guides and protects from deception.
+2 Nephi 31:18; D&C 20:27; John 16:14 | Glorifies and bears record of God the Father and Jesus Christ.
+D&C 42:16; 84:85; 100:5–8; Luke 12:11–12 | Guides the words of humble teachers.
+John 16:8 | Recognizes and corrects sin.
+Moroni 10:8–17; D&C 46:8–26; 1 Corinthians 12 | Gives gifts of the Spirit.
+Alma 10:17; 12:3; 18:16, 20, 32, 35; D&C 63:41 | Helps to perceive or discern the thoughts of others.
+D&C 46:30; 50:29–30 | Tells what to pray for.
+2 Nephi 32:1–5; D&C 28:15 | Tells what to do.
+1 Nephi 10:22; Alma 18:35 | Helps the righteous speak with power and authority.
+D&C 21:9; 100:8; John 15:26 | Testifies of the truth.
+2 Nephi 31:17; Alma 13:12; 3 Nephi 27:20 | Sanctifies and brings remission of sins.
+1 Nephi 2:16–17; 2 Nephi 33:1; Alma 24:8 | Carries truth to the heart of the listener.
+1 Nephi 1:1–3; Exodus 31:3–5 | Enhances skills and abilities.
+1 Nephi 7:15; 2 Nephi 28:1; 32:7; Alma 14:11; Mormon 3:16; Ether 12:2 | Constrains (impels forward) or restrains (holds back).
+D&C 50:13–22 | Edifies both teacher and students.
+D&C 88:3; John 14:26 | Gives comfort.
