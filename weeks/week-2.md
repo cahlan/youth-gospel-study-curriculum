@@ -48,7 +48,7 @@ Watch the videos below. Then reflect on the Fall of Adam and Eve. Why was it nec
 
 [![Video Mormon Channel We Lived With God](https://img.youtube.com/vi/UJKsHqEXXsI/0.jpg)](https://www.youtube.com/watch?v=UJKsHqEXXsI)
 
-[![Video Mormon Channel Jeffrey Holland Where Justice, Love, and Mercy Meet](https://img.youtube.com/vi/neDaRXAh7a4/0.jpg)](https://www.youtube.com/watch?v=neDaRXAh7a4?t=6m31s)
+[![Video Mormon Channel Jeffrey Holland Where Justice, Love, and Mercy Meet](https://img.youtube.com/vi/neDaRXAh7a4/0.jpg)](https://youtu.be/neDaRXAh7a4?t=6m31s)
 
 ## June 8: Our Life on Earth
 
