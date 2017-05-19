@@ -36,13 +36,19 @@ Watch the video below. What does the creation teach me about God?
 
 ### Reflection Questions
 
-Why was agency important to Father's plan? How does Adam and Eve's choice affect me now? In what ways does my experience mirror Adam or Eve's?
+Why was agency important to Father's plan? How does Adam and Eve's choice affect me now? 
 
 ### Study
 
 2 Nephi 2; Moses 2:26–31; Moses 3:15–17; Moses 5:11; Alma 12:22-34; Moses 4; Genesis 3
 
 ### Activities / Challenges
+
+Watch the videos below. Then reflect on the Fall of Adam and Eve. Why was it necessary? In what ways does my experience mirror Adam and Eve's?
+
+[![Video Mormon Channel We Lived With God](https://img.youtube.com/vi/UJKsHqEXXsI/0.jpg)](https://www.youtube.com/watch?v=UJKsHqEXXsI)
+
+[![Video Mormon Channel Jeffrey Holland Where Justice, Love, and Mercy Meet](https://img.youtube.com/vi/neDaRXAh7a4/0.jpg)](https://www.youtube.com/watch?v=neDaRXAh7a4?t=6m31s)
 
 ## June 8: Our Life on Earth
 
