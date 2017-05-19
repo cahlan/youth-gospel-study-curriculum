@@ -62,6 +62,12 @@ Why am I here? How does knowing my purpose on earth help me each day?
 
 ### Activities / Challenges
 
+Ponder the following quote from Richard G. Scott:
+
+>"Study the things you do in your discretionary time, that time you are free to control. Do you find that it is centered in those things that are of highest priority and of greatest importance? Or do you unconsciously, consistently fill it with trivia and activities that are not of enduring value nor help you accomplish the purpose for which you came to earth? Think of the long view of life, not just what’s going to happen today or tomorrow. Don’t give up what you most want in life for something you think you want now." ("Jesus Christ, Our Redeemer." April, 1997.)
+
+What things do you do in your free time? How do they compliment your purpose in this life? How do you need to change?
+
 ## June 9: The Atonement
 
 ### Reflection Questions
@@ -73,6 +79,10 @@ Why do I have need for a Redeemer? What does the Savior's Atonement mean to me?
 2 Nephi 2:6–8; Alma 7:11–13; Alma 34:8–10; D&C 19:15–19; D&C 45:3–5; John 3:16–17; 1 John 1:7
 
 ### Activities / Challenges
+
+Watch the video below. Write a message to a friend or family member, expressing your testimony of the Atonement and what it means to you.
+
+[![Video Mormon Channel None Were with Him](https://img.youtube.com/vi/EpFhS0dAduc/0.jpg)](https://youtu.be/EpFhS0dAduc)
 
 ## June 10: The Spirit World
 
@@ -86,6 +96,8 @@ D&C 138; 1 Peter 3:19–20; 1 Peter 4:6; Alma 34:34; Alma 40:11–14; Ecclesiast
 
 ### Activities / Challenges
 
+Think of family members, friends, or other who have passed on from this life. Given what you've learned about the Spirit World, what do you think these people are doing?
+
 ## June 11: The Resurrection, Judgement, and Immortality + Kingdoms of Glory 
 
 ### Reflection Questions
@@ -97,3 +109,5 @@ What will happen at the final judgement? What kinds of people will inherit the v
 2 Nephi 9:14–15; Jacob 6:8–9; Alma 42:13–15, 22–23; D&C 76; 2 Nephi 31:17–21; D&C 14:7; D&C 29:43–44; D&C 45:8; D&C 93:19; John 3:16; John 17:3
 
 ### Activities / Challenges
+
+What does the final judgement and the kingdoms of glory teach you about God? As you study and think about these things that will happen to each person who has ever lived on earth, record your thoughts and feelings.
