@@ -12,17 +12,25 @@ D&C 93:29; Acts 17:29; Moses 1:39; John 17:3; D&C 138:53-56; Moses 3:5; Abraham 
 
 ### Activities / Challenges
 
+Watch the video below about God's Plan for us. Write down what you learned about your purpose here on earth. What does God want for you?
+
+[![Video Mormon Channel God's Plan](https://img.youtube.com/vi/9MiF_HKoFr4/0.jpg)](https://www.youtube.com/watch?v=9MiF_HKoFr4)
+
 ## June 6: The Creation
 
 ### Reflection Questions
 
-What does the creation teach me about God? What importance does the creation have in God's Plan of Happiness?
+What importance does the creation have in God's Plan of Happiness? Why is important for our progression?
 
 ### Study
 
 1 Nephi 17:36; Alma 30:44; D&C 88:41–47; Moses 2:1; Moses 6:63; Abraham 3:24–25; JST, John 1:1–3; 2 Corinthians 5:6–7
 
 ### Activities / Challenges
+
+Watch the video below. What does the creation teach me about God? 
+
+[![Video Mormon Channel We Lived With God](https://img.youtube.com/vi/JR8qIrJcJh4/0.jpg)](https://www.youtube.com/watch?v=JR8qIrJcJh4)
 
 ## June 7: Agency and the Fall of Adam and Eve
 
