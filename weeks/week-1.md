@@ -8,7 +8,7 @@ Why do I need revelation?
 
 ### Study
 
-D&C 43:15–16; D&C 4:7; Matthew 7:7–8; Bible Dictionary, "Revelation"
+James 1:5; Alma 5:46; D&C 4:7; Matthew 7:7–8; Bible Dictionary, "Revelation"
 
 ### Activities/Challenges
 
