@@ -22,7 +22,7 @@ What is the light of Christ? What is its role in the plan of salvation? How has 
 
 ### Study
 
-Moroni 7:16; see also verses 14–19; Bible Dictionary, “Light of Christ,” 725; see also D&C 84:46–47
+Moroni 7:14–19; Bible Dictionary, “Light of Christ”; D&C 84:46–47
 
 ### Activities/Challenges
 
