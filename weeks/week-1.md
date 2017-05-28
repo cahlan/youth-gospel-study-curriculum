@@ -50,7 +50,7 @@ Why is the Spirit so important in conversion? What role does it play in conversi
 
 ### Study
 
-2 Nephi 33:1-2; D&C 42:11-17; D&C 50:13-22; Acts 2:37-38; 1 Corinthians 2:11-14
+2 Nephi 33:1-2; D&C 42:14-17; D&C 50:13-22; Acts 2:37-38; 1 Corinthians 2:11-14
 
 ### Activities/Challenges
 
