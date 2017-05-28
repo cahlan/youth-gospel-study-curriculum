@@ -14,4 +14,3 @@ Week | Topic
 [Week 8](weeks/week-8.md) | [The Book of Mormon](weeks/week-8.md)
 [Week 9](weeks/week-9.md) | [How do I develop Christlike Attributes?](weeks/week-9.md)
 [Week 10](weeks/week-10.md) | [How do I develop Christlike Attributes?](weeks/week-10.md)
-[Week 11](weeks/week-11.md) | [? ](weeks/week-11.md)
