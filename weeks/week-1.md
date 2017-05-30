@@ -78,11 +78,15 @@ How can I recognize the promptings of the Spirit?
 
 ### Study
 
-3 Ne. 11:3; Hel. 5:30; D&C 85:6–7; 1 Kgs. 19:12
+3 Ne. 11:3; Hel. 5:30; D&C 85:6; 1 Kgs. 19:12
 
 ### Activities/Challenges
 
-Read ["The Spirit of Revelation,"](https://www.lds.org/general-conference/2011/04/the-spirit-of-revelation?lang=eng&) by Elder Bednar, list the differing ways that Elder Bednar describes that revelation or light comes. Under each of those ways, list specific examples you can think of where you've felt the Spirit in those ways (if applicable).
+Watch the video below from Elder Bednar's address, ["The Spirit of Revelation,"](https://www.lds.org/general-conference/2011/04/the-spirit-of-revelation?lang=eng&)
+
+Then list the differing ways that Elder Bednar describes that revelation or light comes. Under each of those ways, list specific examples you can think of where you've felt the Spirit in those ways (if applicable).
+
+[![Video Mormon Channel God's Plan](https://img.youtube.com/vi/slTa15a3mp0/0.jpg)](https://www.youtube.com/watch?v=slTa15a3mp0)
 
 ## June 4: Learn to Recognize the Promptings of the Spirit (cont'd)
 
@@ -92,7 +96,7 @@ How can I recognize the promptings of the Spirit?
 
 ### Study
 
-3 Ne. 11:3; Hel. 5:30; D&C 85:6–7; ["How to Obtain Revelation and Inspiration for Your Personal Life," Richard G. Scott](https://www.lds.org/general-conference/2012/04/how-to-obtain-revelation-and-inspiration-for-your-personal-life?lang=eng)
+["How to Obtain Revelation and Inspiration for Your Personal Life," Richard G. Scott](https://www.lds.org/general-conference/2012/04/how-to-obtain-revelation-and-inspiration-for-your-personal-life?lang=eng)
 
 ### Activities/Challenges
 
