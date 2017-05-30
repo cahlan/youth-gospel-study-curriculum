@@ -100,13 +100,12 @@ How can I recognize the promptings of the Spirit?
 
 ### Activities/Challenges
 
-Study the table below from Preach my Gospel that lists functions of the Spirit, write down times you've felt the Spirit communicate with you in the ways listed.
+Study the table below from Preach my Gospel that lists some of the functions of the Spirit, write down times you've felt the Spirit communicate with you in the ways listed.
 
 Scriptures | Functions of the Spirit
 :---|:---
 D&C 6:23; 11:12–14; Romans 15:13; Galatians 5:22–23 | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
 D&C 8:2–3 | Gives ideas in the mind, feelings in the heart.
-D&C 128:1 | Occupies the mind and presses on the feelings.
 Joseph Smith—History 1:11–12 | Helps scriptures have strong effect.
 D&C 9:8–9 | Gives good feelings to teach if something is true.
 Alma 32:28; D&C 6:14–15; 1 Corinthians 2:9–11 | Enlightens the mind.
@@ -115,20 +114,13 @@ Mosiah 5:2–5 | Strengthens the desire to avoid evil and obey the commandments.
 John 14:26 | Teaches truth and brings it to remembrance.
 John 14:27 | Gives feelings of peace and comfort.
 John 16:13 | Guides to truth and shows things to come.
-Moroni 10:5 | Reveals truth.
 D&C 45:57 | Guides and protects from deception.
 2 Nephi 31:18; D&C 20:27; John 16:14 | Glorifies and bears record of God the Father and Jesus Christ.
-D&C 42:16; 84:85; 100:5–8; Luke 12:11–12 | Guides the words of humble teachers.
 John 16:8 | Recognizes and corrects sin.
-Moroni 10:8–17; D&C 46:8–26; 1 Corinthians 12 | Gives gifts of the Spirit.
-Alma 10:17; 12:3; 18:16, 20, 32, 35; D&C 63:41 | Helps to perceive or discern the thoughts of others.
 D&C 46:30; 50:29–30 | Tells what to pray for.
 2 Nephi 32:1–5; D&C 28:15 | Tells what to do.
 1 Nephi 10:22; Alma 18:35 | Helps the righteous speak with power and authority.
-D&C 21:9; 100:8; John 15:26 | Testifies of the truth.
 2 Nephi 31:17; Alma 13:12; 3 Nephi 27:20 | Sanctifies and brings remission of sins.
-1 Nephi 2:16–17; 2 Nephi 33:1; Alma 24:8 | Carries truth to the heart of the listener.
 1 Nephi 1:1–3; Exodus 31:3–5 | Enhances skills and abilities.
 1 Nephi 7:15; 2 Nephi 28:1; 32:7; Alma 14:11; Mormon 3:16; Ether 12:2 | Constrains (impels forward) or restrains (holds back).
 D&C 50:13–22 | Edifies both teacher and students.
-D&C 88:3; John 14:26 | Gives comfort.
