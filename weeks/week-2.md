@@ -24,7 +24,7 @@ What importance does the creation have in God's Plan of Happiness? Why is import
 
 ### Study
 
-1 Nephi 17:36; Alma 30:44; D&C 88:41–47; Moses 2:1; Moses 6:63; Abraham 3:24–25; JST, John 1:1–3; 2 Corinthians 5:6–7
+1 Nephi 17:36; Alma 30:44; D&C 88:41–47; Moses 2:1, 26–31; Moses 6:63; Abraham 3:24–25; JST, John 1:1–3; 2 Corinthians 5:6–7
 
 ### Activities / Challenges
 
@@ -40,7 +40,7 @@ Why was agency important to Father's plan? How does Adam and Eve's choice affect
 
 ### Study
 
-2 Nephi 2; Moses 2:26–31; Moses 3:15–17; Moses 5:11; Alma 12:22-34; Moses 4; Genesis 3
+Moses 3:15–17; Moses 4:6-28; 2 Nephi 2:11-12, 14-25; Moses 5:11; Alma 12:22-34;
 
 ### Activities / Challenges
 
@@ -92,7 +92,7 @@ What will existence be like after this life? What is the purpose of the Spirit W
 
 ### Study
 
-D&C 138; 1 Peter 3:19–20; 1 Peter 4:6; Alma 34:34; Alma 40:11–14; Ecclesiastes 12:7
+D&C 138; 1 Peter 3:19–20; 1 Peter 4:6; Alma 40:11–14;
 
 ### Activities / Challenges
 
@@ -106,7 +106,7 @@ What will happen at the final judgement? What kinds of people will inherit the v
 
 ### Study
 
-2 Nephi 9:14–15; Jacob 6:8–9; Alma 42:13–15, 22–23; D&C 76; 2 Nephi 31:17–21; D&C 14:7; D&C 29:43–44; D&C 45:8; D&C 93:19; John 3:16; John 17:3
+2 Nephi 9:14–15; Jacob 6:8–9; Alma 42:22–23; D&C 76:50-60, 69-88; D&C 14:7; John 17:3
 
 ### Activities / Challenges
 
