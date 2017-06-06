@@ -79,7 +79,7 @@ Why is enduring to the end a principle of the Gospel of Jesus Christ? What will 
 Read the following quote:
 >"...what does it mean to endure to the end? Endure what, and how? And when is the end? For some people, the term endure calls up images of tar and feathers or other forms of persecution. But few Saints actually face such suffering today. Are we therefore less tested than the Saints of former times? I think not.
 
-The fact is that enduring affliction is only a small part of what “enduring to the end” means. Most frequently, the scriptures use the term endure to mean “to last,” “to continue,” or “to remain,” rather than “to suffer.”  [...] to endure is to continue in the path we adopted at baptism by keeping our commitments to Christ, until the end of our mortal life." ([Stephen E. Robinson, "Enduring to the End," Ensign, October 1993.](https://www.lds.org/ensign/1993/10/enduring-to-the-end?lang=eng))
+>The fact is that enduring affliction is only a small part of what “enduring to the end” means. Most frequently, the scriptures use the term endure to mean “to last,” “to continue,” or “to remain,” rather than “to suffer.”  [...] to endure is to continue in the path we adopted at baptism by keeping our commitments to Christ, until the end of our mortal life." ([Stephen E. Robinson, "Enduring to the End," Ensign, October 1993.](https://www.lds.org/ensign/1993/10/enduring-to-the-end?lang=eng))
 
 Write down examples from the scriptures, your family, or your life of enduring to the end.
 
