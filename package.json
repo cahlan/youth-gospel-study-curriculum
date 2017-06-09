@@ -1,0 +1,22 @@
+{
+  "name": "youth-gospel-study-curriculum",
+  "version": "1.0.0",
+  "description": "[Link to curriculum](curriculum.md)",
+  "main": "scripture-link-builder.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/cahlan/youth-gospel-study-curriculum.git"
+  },
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/cahlan/youth-gospel-study-curriculum/issues"
+  },
+  "homepage": "https://github.com/cahlan/youth-gospel-study-curriculum#readme",
+  "devDependencies": {
+    "underscore": "^1.8.3"
+  }
+}
