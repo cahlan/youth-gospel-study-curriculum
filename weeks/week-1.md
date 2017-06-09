@@ -8,7 +8,7 @@ Why do I need revelation?
 
 ### Study
 
-James 1:5; Alma 5:46; D&C 4:7; Matthew 7:7–8; Bible Dictionary, "Revelation"
+[James 1:5](https://www.lds.org/scriptures/nt/james/1.5); [Alma 5:46](https://www.lds.org/scriptures/bofm/alma/5.46); [D&C 4:7](https://www.lds.org/scriptures/dc-testament/dc/4.7); [Matthew 7:7–8](https://www.lds.org/scriptures/nt/matt/7.7-8); Bible Dictionary, "Revelation"
 
 ### Activities/Challenges
 
@@ -22,7 +22,7 @@ What is the light of Christ? What is its role in the plan of salvation? How has 
 
 ### Study
 
-Moroni 7:14–19; Bible Dictionary, “Light of Christ”; D&C 84:46–47
+[Moroni 7:14–19](https://www.lds.org/scriptures/bofm/moro/7.14-19); Bible Dictionary, “Light of Christ”; [D&C 84:46–47](https://www.lds.org/scriptures/dc-testament/dc/84.46-47)
 
 ### Activities/Challenges
 
@@ -36,7 +36,7 @@ What is the Holy Ghost and how does He work? What is the difference between the 
 
 ### Study
 
-D&C 130:22; John 14:26; Moroni 10:5; D&C 88:3; Moroni 10:8–18; Bible Dictionary, “Holy Ghost”; Acts 4:23–33
+[D&C 130:22](https://www.lds.org/scriptures/dc-testament/dc/130.22); [[John 14:26](https://www.lds.org/scriptures/nt/john/14.26)](https://www.lds.org/scriptures/nt/john/14.26); [Moroni 10:5](https://www.lds.org/scriptures/bofm/moro/10.5); [D&C 88:3](https://www.lds.org/scriptures/dc-testament/dc/88.3); [Moroni 10:8–18](https://www.lds.org/scriptures/bofm/moro/10.8-18); Bible Dictionary, “Holy Ghost”; [Acts 4:23–33](https://www.lds.org/scriptures/nt/acts/4.23-33)
 
 ### Activities/Challenges
 
@@ -50,7 +50,7 @@ Why is the Spirit so important in conversion? What role does it play in conversi
 
 ### Study
 
-2 Nephi 33:1-2; D&C 42:14-17; D&C 50:13-22; Acts 2:37-38; 1 Corinthians 2:11-14
+[[2 Nephi 33:1](https://www.lds.org/scriptures/bofm/2-ne/33.1)](https://www.lds.org/scriptures/bofm/2-ne/33.1)-2; [[D&C 42:14](https://www.lds.org/scriptures/dc-testament/dc/42.14)](https://www.lds.org/scriptures/dc-testament/dc/42.14)-17; [D&C 50:13](https://www.lds.org/scriptures/dc-testament/dc/50.13)-22; [Acts 2:37](https://www.lds.org/scriptures/nt/acts/2.37)-38; [1 Corinthians 2:11](https://www.lds.org/scriptures/nt/1-cor/2.11)-14
 
 ### Activities/Challenges
 
@@ -64,7 +64,7 @@ What does it mean to pray with faith? Why must I pray in faith?
 
 ### Study
 
-D&C 42:14; 2 Nephi 33:1; Moroni 7:48; Moroni 10:3–4; D&C 8:10; 9:7; 3 Nephi 19:24; D&C 46:28, 30
+D&C 42:14; 2 Nephi 33:1; [Moroni 7:48](https://www.lds.org/scriptures/bofm/moro/7.48); [Moroni 10:3–4](https://www.lds.org/scriptures/bofm/moro/10.3-4); [D&C 8:10](https://www.lds.org/scriptures/dc-testament/dc/8.10); 9:7; [3 Nephi 19:24](https://www.lds.org/scriptures/bofm/3-ne/19.24); [D&C 46:28, 30](https://www.lds.org/scriptures/dc-testament/dc/46.28, 30)
 
 ### Activities/Challenges
 
@@ -78,7 +78,7 @@ How can I recognize the promptings of the Spirit?
 
 ### Study
 
-3 Ne. 11:3; Hel. 5:30; D&C 85:6; 1 Kgs. 19:12
+3 Ne. 11:3; Hel. 5:30; [D&C 85:6](https://www.lds.org/scriptures/dc-testament/dc/85.6); 1 Kgs. 19:12
 
 ### Activities/Challenges
 
@@ -104,23 +104,23 @@ Study the table below from Preach my Gospel that lists some of the functions of 
 
 Scriptures | Functions of the Spirit
 :---|:---
-D&C 6:23; 11:12–14; Romans 15:13; Galatians 5:22–23 | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
-D&C 8:2–3 | Gives ideas in the mind, feelings in the heart.
-Joseph Smith—History 1:11–12 | Helps scriptures have strong effect.
-D&C 9:8–9 | Gives good feelings to teach if something is true.
-Alma 32:28; D&C 6:14–15; 1 Corinthians 2:9–11 | Enlightens the mind.
-Alma 19:6 | Replaces darkness with light.
-Mosiah 5:2–5 | Strengthens the desire to avoid evil and obey the commandments.
+[D&C 6:23](https://www.lds.org/scriptures/dc-testament/dc/6.23); 11:12–14; [Romans 15:13](https://www.lds.org/scriptures/nt/rom/15.13); [Galatians 5:22–23](https://www.lds.org/scriptures/nt/gal/5.22-23) | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
+[D&C 8:2–3](https://www.lds.org/scriptures/dc-testament/dc/8.2-3) | Gives ideas in the mind, feelings in the heart.
+Joseph Smith—[History 1:11–12](https://www.lds.org/scriptures/dc-testament/dc/1.11-12) | Helps scriptures have strong effect.
+[D&C 9:8–9](https://www.lds.org/scriptures/dc-testament/dc/9.8-9) | Gives good feelings to teach if something is true.
+[Alma 32:28](https://www.lds.org/scriptures/bofm/alma/32.28); [D&C 6:14–15](https://www.lds.org/scriptures/dc-testament/dc/6.14-15); [1 Corinthians 2:9–11](https://www.lds.org/scriptures/nt/1-cor/2.9-11) | Enlightens the mind.
+[Alma 19:6](https://www.lds.org/scriptures/bofm/alma/19.6) | Replaces darkness with light.
+[Mosiah 5:2–5](https://www.lds.org/scriptures/bofm/mosiah/5.2-5) | Strengthens the desire to avoid evil and obey the commandments.
 John 14:26 | Teaches truth and brings it to remembrance.
-John 14:27 | Gives feelings of peace and comfort.
-John 16:13 | Guides to truth and shows things to come.
-D&C 45:57 | Guides and protects from deception.
-2 Nephi 31:18; D&C 20:27; John 16:14 | Glorifies and bears record of God the Father and Jesus Christ.
-John 16:8 | Recognizes and corrects sin.
-D&C 46:30; 50:29–30 | Tells what to pray for.
-2 Nephi 32:1–5; D&C 28:15 | Tells what to do.
-1 Nephi 10:22; Alma 18:35 | Helps the righteous speak with power and authority.
-2 Nephi 31:17; Alma 13:12; 3 Nephi 27:20 | Sanctifies and brings remission of sins.
-1 Nephi 1:1–3; Exodus 31:3–5 | Enhances skills and abilities.
-1 Nephi 7:15; 2 Nephi 28:1; 32:7; Alma 14:11; Mormon 3:16; Ether 12:2 | Constrains (impels forward) or restrains (holds back).
-D&C 50:13–22 | Edifies both teacher and students.
+[John 14:27](https://www.lds.org/scriptures/nt/john/14.27) | Gives feelings of peace and comfort.
+[John 16:13](https://www.lds.org/scriptures/nt/john/16.13) | Guides to truth and shows things to come.
+[D&C 45:57](https://www.lds.org/scriptures/dc-testament/dc/45.57) | Guides and protects from deception.
+[2 Nephi 31:18](https://www.lds.org/scriptures/bofm/2-ne/31.18); [D&C 20:27](https://www.lds.org/scriptures/dc-testament/dc/20.27); [John 16:14](https://www.lds.org/scriptures/nt/john/16.14) | Glorifies and bears record of God the Father and Jesus Christ.
+[John 16:8](https://www.lds.org/scriptures/nt/john/16.8) | Recognizes and corrects sin.
+[D&C 46:30](https://www.lds.org/scriptures/dc-testament/dc/46.30); 50:29–30 | Tells what to pray for.
+[2 Nephi 32:1–5](https://www.lds.org/scriptures/bofm/2-ne/32.1-5); [D&C 28:15](https://www.lds.org/scriptures/dc-testament/dc/28.15) | Tells what to do.
+[1 Nephi 10:22](https://www.lds.org/scriptures/bofm/1-ne/10.22); [Alma 18:35](https://www.lds.org/scriptures/bofm/alma/18.35) | Helps the righteous speak with power and authority.
+[2 Nephi 31:17](https://www.lds.org/scriptures/bofm/2-ne/31.17); [Alma 13:12](https://www.lds.org/scriptures/bofm/alma/13.12); [3 Nephi 27:20](https://www.lds.org/scriptures/bofm/3-ne/27.20) | Sanctifies and brings remission of sins.
+[1 Nephi 1:1–3](https://www.lds.org/scriptures/bofm/1-ne/1.1-3); [Exodus 31:3–5](https://www.lds.org/scriptures/ot/ex/31.3-5) | Enhances skills and abilities.
+[1 Nephi 7:15](https://www.lds.org/scriptures/bofm/1-ne/7.15); [2 Nephi 28:1](https://www.lds.org/scriptures/bofm/2-ne/28.1); 32:7; [Alma 14:11](https://www.lds.org/scriptures/bofm/alma/14.11); [Mormon 3:16](https://www.lds.org/scriptures/bofm/morm/3.16); [Ether 12:2](https://www.lds.org/scriptures/bofm/ether/12.2) | Constrains (impels forward) or restrains (holds back).
+[D&C 50:13–22](https://www.lds.org/scriptures/dc-testament/dc/50.13-22) | Edifies both teacher and students.
