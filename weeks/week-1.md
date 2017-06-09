@@ -36,7 +36,7 @@ What is the Holy Ghost and how does He work? What is the difference between the 
 
 ### Study
 
-[D&C 130:22](https://www.lds.org/scriptures/dc-testament/dc/130.22); [John 14:26](https://www.lds.org/scriptures/nt/john/14.26)](https://www.lds.org/scriptures/nt/john/14.26); [Moroni 10:5](https://www.lds.org/scriptures/bofm/moro/10.5); [D&C 88:3](https://www.lds.org/scriptures/dc-testament/dc/88.3); [Moroni 10:8–18](https://www.lds.org/scriptures/bofm/moro/10.8-18); Bible Dictionary, “Holy Ghost”; [Acts 4:23–33](https://www.lds.org/scriptures/nt/acts/4.23-33)
+[D&C 130:22](https://www.lds.org/scriptures/dc-testament/dc/130.22); [John 14:26](https://www.lds.org/scriptures/nt/john/14.26); [Moroni 10:5](https://www.lds.org/scriptures/bofm/moro/10.5); [D&C 88:3](https://www.lds.org/scriptures/dc-testament/dc/88.3); [Moroni 10:8–18](https://www.lds.org/scriptures/bofm/moro/10.8-18); Bible Dictionary, “Holy Ghost”; [Acts 4:23–33](https://www.lds.org/scriptures/nt/acts/4.23-33)
 
 ### Activities/Challenges
 
@@ -50,7 +50,7 @@ Why is the Spirit so important in conversion? What role does it play in conversi
 
 ### Study
 
-[2 Nephi 33:1](https://www.lds.org/scriptures/bofm/2-ne/33.1)](https://www.lds.org/scriptures/bofm/2-ne/33.1)-2; [D&C 42:14](https://www.lds.org/scriptures/dc-testament/dc/42.14)](https://www.lds.org/scriptures/dc-testament/dc/42.14)-17; [D&C 50:13](https://www.lds.org/scriptures/dc-testament/dc/50.13)-22; [Acts 2:37](https://www.lds.org/scriptures/nt/acts/2.37)-38; [1 Corinthians 2:11](https://www.lds.org/scriptures/nt/1-cor/2.11)-14
+[2 Nephi 33:1-2](https://www.lds.org/scriptures/bofm/2-ne/33.1-2); [D&C 42:14-17](https://www.lds.org/scriptures/dc-testament/dc/42.14-17); [D&C 50:13-22](https://www.lds.org/scriptures/dc-testament/dc/50.13-22); [Acts 2:37-38](https://www.lds.org/scriptures/nt/acts/2.37-38); [1 Corinthians 2:11-14](https://www.lds.org/scriptures/nt/1-cor/2.11-14)
 
 ### Activities/Challenges
 
@@ -64,7 +64,7 @@ What does it mean to pray with faith? Why must I pray in faith?
 
 ### Study
 
-D&C 42:14; 2 Nephi 33:1; [Moroni 7:48](https://www.lds.org/scriptures/bofm/moro/7.48); [Moroni 10:3–4](https://www.lds.org/scriptures/bofm/moro/10.3-4); [D&C 8:10](https://www.lds.org/scriptures/dc-testament/dc/8.10); 9:7; [3 Nephi 19:24](https://www.lds.org/scriptures/bofm/3-ne/19.24); [D&C 46:28, 30](https://www.lds.org/scriptures/dc-testament/dc/46.28, 30)
+D&C 42:14; 2 Nephi 33:1; [Moroni 7:48](https://www.lds.org/scriptures/bofm/moro/7.48); [Moroni 10:3–4](https://www.lds.org/scriptures/bofm/moro/10.3-4); [D&C 8:10](https://www.lds.org/scriptures/dc-testament/dc/8.10); [9:7](https://www.lds.org/scriptures/dc-testament/dc/9.7); [3 Nephi 19:24](https://www.lds.org/scriptures/bofm/3-ne/19.24); [D&C 46:28, 30](https://www.lds.org/scriptures/dc-testament/dc/46.28)
 
 ### Activities/Challenges
 
@@ -104,7 +104,7 @@ Study the table below from Preach my Gospel that lists some of the functions of 
 
 Scriptures | Functions of the Spirit
 :---|:---
-[D&C 6:23](https://www.lds.org/scriptures/dc-testament/dc/6.23); 11:12–14; [Romans 15:13](https://www.lds.org/scriptures/nt/rom/15.13); [Galatians 5:22–23](https://www.lds.org/scriptures/nt/gal/5.22-23) | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
+[D&C 6:23](https://www.lds.org/scriptures/dc-testament/dc/6.23); [11:12–14](https://www.lds.org/scriptures/dc-testament/dc/11.12-14); [Romans 15:13](https://www.lds.org/scriptures/nt/rom/15.13); [Galatians 5:22–23](https://www.lds.org/scriptures/nt/gal/5.22-23) | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope.
 [D&C 8:2–3](https://www.lds.org/scriptures/dc-testament/dc/8.2-3) | Gives ideas in the mind, feelings in the heart.
 Joseph Smith—[History 1:11–12](https://www.lds.org/scriptures/dc-testament/dc/1.11-12) | Helps scriptures have strong effect.
 [D&C 9:8–9](https://www.lds.org/scriptures/dc-testament/dc/9.8-9) | Gives good feelings to teach if something is true.
