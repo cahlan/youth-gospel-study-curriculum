@@ -36,7 +36,7 @@ What is the Holy Ghost and how does He work? What is the difference between the 
 
 ### Study
 
-[D&C 130:22](https://www.lds.org/scriptures/dc-testament/dc/130.22); [[John 14:26](https://www.lds.org/scriptures/nt/john/14.26)](https://www.lds.org/scriptures/nt/john/14.26); [Moroni 10:5](https://www.lds.org/scriptures/bofm/moro/10.5); [D&C 88:3](https://www.lds.org/scriptures/dc-testament/dc/88.3); [Moroni 10:8–18](https://www.lds.org/scriptures/bofm/moro/10.8-18); Bible Dictionary, “Holy Ghost”; [Acts 4:23–33](https://www.lds.org/scriptures/nt/acts/4.23-33)
+[D&C 130:22](https://www.lds.org/scriptures/dc-testament/dc/130.22); [John 14:26](https://www.lds.org/scriptures/nt/john/14.26)](https://www.lds.org/scriptures/nt/john/14.26); [Moroni 10:5](https://www.lds.org/scriptures/bofm/moro/10.5); [D&C 88:3](https://www.lds.org/scriptures/dc-testament/dc/88.3); [Moroni 10:8–18](https://www.lds.org/scriptures/bofm/moro/10.8-18); Bible Dictionary, “Holy Ghost”; [Acts 4:23–33](https://www.lds.org/scriptures/nt/acts/4.23-33)
 
 ### Activities/Challenges
 
@@ -50,7 +50,7 @@ Why is the Spirit so important in conversion? What role does it play in conversi
 
 ### Study
 
-[[2 Nephi 33:1](https://www.lds.org/scriptures/bofm/2-ne/33.1)](https://www.lds.org/scriptures/bofm/2-ne/33.1)-2; [[D&C 42:14](https://www.lds.org/scriptures/dc-testament/dc/42.14)](https://www.lds.org/scriptures/dc-testament/dc/42.14)-17; [D&C 50:13](https://www.lds.org/scriptures/dc-testament/dc/50.13)-22; [Acts 2:37](https://www.lds.org/scriptures/nt/acts/2.37)-38; [1 Corinthians 2:11](https://www.lds.org/scriptures/nt/1-cor/2.11)-14
+[2 Nephi 33:1](https://www.lds.org/scriptures/bofm/2-ne/33.1)](https://www.lds.org/scriptures/bofm/2-ne/33.1)-2; [D&C 42:14](https://www.lds.org/scriptures/dc-testament/dc/42.14)](https://www.lds.org/scriptures/dc-testament/dc/42.14)-17; [D&C 50:13](https://www.lds.org/scriptures/dc-testament/dc/50.13)-22; [Acts 2:37](https://www.lds.org/scriptures/nt/acts/2.37)-38; [1 Corinthians 2:11](https://www.lds.org/scriptures/nt/1-cor/2.11)-14
 
 ### Activities/Challenges
 
