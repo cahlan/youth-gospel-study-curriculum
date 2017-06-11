@@ -92,7 +92,7 @@ What will existence be like after this life? What is the purpose of the Spirit W
 
 ### Study
 
-D&C 138; [1 Peter 3:19–20](https://www.lds.org/scriptures/nt/1-pet/3.19-20); [1 Peter 4:6](https://www.lds.org/scriptures/nt/1-pet/4.6); [Alma 40:11–14](https://www.lds.org/scriptures/bofm/alma/40.11-14);
+[D&C 138](https://www.lds.org/scriptures/dc-testament/dc/138); [1 Peter 3:19–20](https://www.lds.org/scriptures/nt/1-pet/3.19-20); [1 Peter 4:6](https://www.lds.org/scriptures/nt/1-pet/4.6); [Alma 40:11–14](https://www.lds.org/scriptures/bofm/alma/40.11-14);
 
 ### Activities / Challenges
 
@@ -106,7 +106,7 @@ What will happen at the final judgement? What kinds of people will inherit the v
 
 ### Study
 
-[2 Nephi 9:14–15](https://www.lds.org/scriptures/bofm/2-ne/9.14-15); [Jacob 6:8–9](https://www.lds.org/scriptures/bofm/jacob/6.8-9); [Alma 42:22–23](https://www.lds.org/scriptures/bofm/alma/42.22-23); [D&C 76:50](https://www.lds.org/scriptures/dc-testament/dc/76.50)-60, 69-88; [D&C 14:7](https://www.lds.org/scriptures/dc-testament/dc/14.7); John 17:3
+[2 Nephi 9:14–15](https://www.lds.org/scriptures/bofm/2-ne/9.14-15); [Jacob 6:8–9](https://www.lds.org/scriptures/bofm/jacob/6.8-9); [Alma 42:22–23](https://www.lds.org/scriptures/bofm/alma/42.22-23); [D&C 76:50-60, 69-88](https://www.lds.org/scriptures/dc-testament/dc/76.50-60); [D&C 14:7](https://www.lds.org/scriptures/dc-testament/dc/14.7); [John 17:3](https://www.lds.org/scriptures/nt/john/17.3)
 
 ### Activities / Challenges
 
