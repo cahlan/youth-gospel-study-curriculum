@@ -78,7 +78,7 @@ How can I recognize the promptings of the Spirit?
 
 ### Study
 
-3 Ne. 11:3; Hel. 5:30; [D&C 85:6](https://www.lds.org/scriptures/dc-testament/dc/85.6); 1 Kgs. 19:12
+[3 Nephi 11:3](https://www.lds.org/scriptures/bofm/3-ne/11.13); [Helaman 5:30](https://www.lds.org/scriptures/bofm/3-ne/11.13); [D&C 85:6](https://www.lds.org/scriptures/bofm/hel/5.30); [1 Kgs. 19:12](https://www.lds.org/scriptures/ot/1-kings/19.12)
 
 ### Activities/Challenges
 
