@@ -8,7 +8,7 @@ What was my life like before my time on earth? What is God's plan for me?
 
 ### Study
 
-[D&C 93:29](https://www.lds.org/scriptures/dc-testament/dc/93.29); [Acts 17:29](https://www.lds.org/scriptures/nt/acts/17.29); [Moses 1:39](https://www.lds.org/scriptures/pgp/moses/1.39); [John 17:3](https://www.lds.org/scriptures/nt/john/17.3); [D&C 138:53](https://www.lds.org/scriptures/dc-testament/dc/138.53)-56; [Moses 3:5](https://www.lds.org/scriptures/pgp/moses/3.5); [Abraham 3:22](https://www.lds.org/scriptures/pgp/abr/3.22)-26; [Jeremiah 1:5](https://www.lds.org/scriptures/ot/jer/1.5)
+[D&C 93:29](https://www.lds.org/scriptures/dc-testament/dc/93.29); [Acts 17:29](https://www.lds.org/scriptures/nt/acts/17.29); [Moses 1:39](https://www.lds.org/scriptures/pgp/moses/1.39); [John 17:3](https://www.lds.org/scriptures/nt/john/17.3); [D&C 138:53-56](https://www.lds.org/scriptures/dc-testament/dc/138.53-56); [Moses 3:5](https://www.lds.org/scriptures/pgp/moses/3.5); [Abraham 3:22-26](https://www.lds.org/scriptures/pgp/abr/3.22-26); [Jeremiah 1:5](https://www.lds.org/scriptures/ot/jer/1.5)
 
 ### Activities / Challenges
 
@@ -24,7 +24,7 @@ What importance does the creation have in God's Plan of Happiness? Why is import
 
 ### Study
 
-[1 Nephi 17:36](https://www.lds.org/scriptures/bofm/1-ne/17.36); [Alma 30:44](https://www.lds.org/scriptures/bofm/alma/30.44); [D&C 88:41–47](https://www.lds.org/scriptures/dc-testament/dc/88.41-47); [Moses 2:1, 26](https://www.lds.org/scriptures/pgp/moses/2.1, 26)–31; [Moses 6:63](https://www.lds.org/scriptures/pgp/moses/6.63); [Abraham 3:24–25](https://www.lds.org/scriptures/pgp/abr/3.24-25); JST, [John 1:1–3](https://www.lds.org/scriptures/nt/john/1.1-3); [2 Corinthians 5:6–7](https://www.lds.org/scriptures/nt/2-cor/5.6-7)
+[1 Nephi 17:36](https://www.lds.org/scriptures/bofm/1-ne/17.36); [Alma 30:44](https://www.lds.org/scriptures/bofm/alma/30.44); [D&C 88:41–47](https://www.lds.org/scriptures/dc-testament/dc/88.41-47); [Moses 2:1, 26-31](https://www.lds.org/scriptures/pgp/moses/2.1); [Moses 6:63](https://www.lds.org/scriptures/pgp/moses/6.63); [Abraham 3:24–25](https://www.lds.org/scriptures/pgp/abr/3.24-25); [JST, John 1:1–3](https://www.lds.org/scriptures/nt/john/1.1-3); [2 Corinthians 5:6–7](https://www.lds.org/scriptures/nt/2-cor/5.6-7)
 
 ### Activities / Challenges
 
@@ -40,7 +40,7 @@ Why was agency important to Father's plan? How does Adam and Eve's choice affect
 
 ### Study
 
-[Moses 3:15–17](https://www.lds.org/scriptures/pgp/moses/3.15-17); [Moses 4:6](https://www.lds.org/scriptures/pgp/moses/4.6)-28; [2 Nephi 2:11](https://www.lds.org/scriptures/bofm/2-ne/2.11)-12, 14-25; [Moses 5:11](https://www.lds.org/scriptures/pgp/moses/5.11); [Alma 12:22](https://www.lds.org/scriptures/bofm/alma/12.22)-34;
+[Moses 3:15–17](https://www.lds.org/scriptures/pgp/moses/3.15-17); [Moses 4:6-28](https://www.lds.org/scriptures/pgp/moses/4.6-28); [2 Nephi 2:11-12, 14-25](https://www.lds.org/scriptures/bofm/2-ne/2.11-12); [Moses 5:11](https://www.lds.org/scriptures/pgp/moses/5.11); [Alma 12:22-34](https://www.lds.org/scriptures/bofm/alma/12.22-34);
 
 ### Activities / Challenges
 
