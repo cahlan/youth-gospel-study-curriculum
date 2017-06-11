@@ -8,7 +8,7 @@ What was my life like before my time on earth? What is God's plan for me?
 
 ### Study
 
-[D&C 93:29](https://www.lds.org/scriptures/dc-testament/dc/93.29); [Acts 17:29](https://www.lds.org/scriptures/nt/acts/17.29); [Moses 1:39](https://www.lds.org/scriptures/pgp/moses/1.39); [[John 17:3](https://www.lds.org/scriptures/nt/john/17.3)](https://www.lds.org/scriptures/nt/john/17.3); [D&C 138:53](https://www.lds.org/scriptures/dc-testament/dc/138.53)-56; [Moses 3:5](https://www.lds.org/scriptures/pgp/moses/3.5); [Abraham 3:22](https://www.lds.org/scriptures/pgp/abr/3.22)-26; [Jeremiah 1:5](https://www.lds.org/scriptures/ot/jer/1.5)
+[D&C 93:29](https://www.lds.org/scriptures/dc-testament/dc/93.29); [Acts 17:29](https://www.lds.org/scriptures/nt/acts/17.29); [Moses 1:39](https://www.lds.org/scriptures/pgp/moses/1.39); [John 17:3](https://www.lds.org/scriptures/nt/john/17.3); [D&C 138:53](https://www.lds.org/scriptures/dc-testament/dc/138.53)-56; [Moses 3:5](https://www.lds.org/scriptures/pgp/moses/3.5); [Abraham 3:22](https://www.lds.org/scriptures/pgp/abr/3.22)-26; [Jeremiah 1:5](https://www.lds.org/scriptures/ot/jer/1.5)
 
 ### Activities / Challenges
 
