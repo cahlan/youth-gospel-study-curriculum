@@ -36,7 +36,10 @@ What do the scriptures contain for me? Why is studying the scriptures a commandm
 
 ### Activities / Challenges
 
-Watch Elder Richard G. Scott's [message about the power of the scriptures](https://www.lds.org/youth/video/power-of-the-scriptures?lang=eng). Ask yourself: which scripture passages have become like "friends to you?" When have the scriptures unlocked revelation for you, or given you peace, hope, or confidence?
+Watch Elder Richard G. Scott's [message about the power of the scriptures](https://www.lds.org/youth/video/power-of-the-scriptures?lang=eng). 
+[![Video Power of Scriptures Richard G Scott](https://d3vv6lp55qjaqc.cloudfront.net/items/2m0k0k2l352r1b3D0Y2D/Screen%20Shot%202017-06-19%20at%2012.59.47%20AM.png?X-CloudApp-Visitor-Id=1038689&v=68d23076)](https://www.lds.org/youth/video/power-of-the-scriptures?lang=eng)
+
+Ask yourself: which scripture passages have become like "friends" to you? When have the scriptures unlocked revelation for you, or given you peace, hope, or confidence?
 
 ## June 22: Keep the Sabbath Day Holy
 
@@ -63,7 +66,7 @@ Think about President Monson's life and teachings. What has he asked us to do? W
 ## June 24: Keep the Ten Commandments
 
 ### Reflection Questions
-How relevant are teh ten commandments today? What do they teach us? What do they help us become?
+How relevant are the ten commandments today? What do they teach us? What do they help us become?
 
 ### Study
 [Mosiah 13](https://www.lds.org/scriptures/bofm/mosiah/13); [D&C 59:5–6](https://www.lds.org/scriptures/dc-testament/dc/59.5-6); [Matthew 22:36–40](https://www.lds.org/scriptures/nt/matt/22.36-40); [Exodus 20:1–17](https://www.lds.org/scriptures/ot/ex/20.1-17); [Deuteronomy 5:6–21](https://www.lds.org/scriptures/ot/deut/5.6-21)
@@ -83,3 +86,6 @@ See below for a short list of some of what modern prophets have said concerning 
 ## June 25: [Catch Up]
 
 ### Instructions
+This day is a chance for you to catch up on your reading and studying, if you are behind.
+
+If you already are caught up, spend some time your journal. Think about the commandments you do a good job keeping, and the commandments that you struggle with. Make a plan to be more obedient to the Lord's commandments. How will you be blessed for this?
