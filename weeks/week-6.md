@@ -1,4 +1,4 @@
-# [Catch Up Week]
+# Catch Up Week
 
 ## July 3 - July 8
 
