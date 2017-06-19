@@ -50,7 +50,7 @@
 ### Reflection Questions
 
 ### Study
-Mosiah 13; [D&C 59:5–6](https://www.lds.org/scriptures/dc-testament/dc/59.5-6); [Matthew 22:36–40](https://www.lds.org/scriptures/nt/matt/22.36-40); [Exodus 20:1–17](https://www.lds.org/scriptures/ot/ex/20.1-17); [Deuteronomy 5:6–21](https://www.lds.org/scriptures/ot/deut/5.6-21)
+[Mosiah 13](https://www.lds.org/scriptures/bofm/mosiah/13); [D&C 59:5–6](https://www.lds.org/scriptures/dc-testament/dc/59.5-6); [Matthew 22:36–40](https://www.lds.org/scriptures/nt/matt/22.36-40); [Exodus 20:1–17](https://www.lds.org/scriptures/ot/ex/20.1-17); [Deuteronomy 5:6–21](https://www.lds.org/scriptures/ot/deut/5.6-21)
 
 ### Activities / Challenges
 
