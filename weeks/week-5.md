@@ -56,7 +56,7 @@ Why does the Lord ask us to obey the laws of the lands in which we live?
 ### Activities / Challenges
 Are we asked to agree with our government leaders? How are we counseled to participate in government and the political process? Ask your parents to share with you their views on obeying the laws of the land.
 
-## July 1-July 2: [Catch Up]
+## July 1-July 2: Catch Up
 
 ### Instructions
 This day is a chance for you to catch up on your reading and studying, if you are behind.
