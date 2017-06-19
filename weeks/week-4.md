@@ -49,23 +49,36 @@ Why is keeping the Sabbath Day Holy a commandment? What can I do to keep the Sab
 ### Activities / Challenges
 Read Elder Nelson's [talk from a recent conference about the Sabbath Day](https://www.lds.org/general-conference/2015/04/the-sabbath-is-a-delight?lang=eng). Make note of Elder Nelson's deliberate avoidance of lists. What things do you do on the Sabbath, and what sign does that show to the Lord?
 
-## June 23: Baptism and Confirmation
+## June 23: Follow the Prophet
 
 ### Reflection Questions
+What is the prophet's role in the Lord's church? Why is it a commandment to follow the prophet?
 
 ### Study
 [Mosiah 15:11–12](https://www.lds.org/scriptures/bofm/mosiah/15.11-12); [Alma 13:1–16](https://www.lds.org/scriptures/bofm/alma/13.1-16); [3 Nephi 12:1–2](https://www.lds.org/scriptures/bofm/3-ne/12.1-2); [D&C 1:37–38](https://www.lds.org/scriptures/dc-testament/dc/1.37-38); [D&C 21:1–7](https://www.lds.org/scriptures/dc-testament/dc/21.1-7); [D&C 136:37–38](https://www.lds.org/scriptures/dc-testament/dc/136.37-38); [John 15:16](https://www.lds.org/scriptures/nt/john/15.16); [Acts 10:34–44](https://www.lds.org/scriptures/nt/acts/10.34-44); [Ephesians 2:19–20](https://www.lds.org/scriptures/nt/eph/2.19-20); [Ephesians 4:11–14](https://www.lds.org/scriptures/nt/eph/4.11-14); [Hebrews 5:4](https://www.lds.org/scriptures/nt/heb/5.4); [Amos 3:7](https://www.lds.org/scriptures/ot/amos/3.7)
 
 ### Activities / Challenges
+Think about President Monson's life and teachings. What has he asked us to do? What have the other modern prophets asked us to do? How have you done in following this commandment, and what can you do better?
 
 ## June 24: Keep the Ten Commandments
 
 ### Reflection Questions
+How relevant are teh ten commandments today? What do they teach us? What do they help us become?
 
 ### Study
 [Mosiah 13](https://www.lds.org/scriptures/bofm/mosiah/13); [D&C 59:5–6](https://www.lds.org/scriptures/dc-testament/dc/59.5-6); [Matthew 22:36–40](https://www.lds.org/scriptures/nt/matt/22.36-40); [Exodus 20:1–17](https://www.lds.org/scriptures/ot/ex/20.1-17); [Deuteronomy 5:6–21](https://www.lds.org/scriptures/ot/deut/5.6-21)
 
 ### Activities / Challenges
+See below for a short list of some of what modern prophets have said concerning keeping the ten commandments. Choose two that stick out to you, and study them. Record your impressions as you study.
+
+* [Serving false gods, Elder Oaks](https://www.lds.org/general-conference/2013/10/no-other-gods?lang=eng)
+* [Law of Chastity, Elder Bednar](https://www.lds.org/general-conference/2013/04/we-believe-in-being-chaste?lang=eng)
+* [The Sabbath Day, Elder Nelson](https://www.lds.org/general-conference/2015/04/the-sabbath-is-a-delight?lang=eng)
+* [Language, President Hinckley](https://www.lds.org/youth/article/take-not-the-name-of-god-in-vain?lang=eng)
+* [Honesty, President Hinckley](https://www.lds.org/ensign/1990/10/we-believe-in-being-honest?lang=eng&_r=1)
+* [Envying and coveting, Elder Holland](https://www.lds.org/general-conference/2002/04/the-other-prodigal?lang=eng)
+* ["Keep the Commandments," President Monson](https://www.lds.org/general-conference/2015/10/keep-the-commandments?lang=eng)
+
 
 ## June 25: [Catch Up]
 
