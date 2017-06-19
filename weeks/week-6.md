@@ -10,4 +10,4 @@ Whether or not you are caught up, make a plan this week to serve those around yo
 
 As you plan your service, consider the following quote from Spencer W. Kimball:
 
->“God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other." (Teachings of Presidents of the Church: Spencer W. Kimball (2006), 82.)
+>"God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other." (Teachings of Presidents of the Church: Spencer W. Kimball (2006), 82.)
