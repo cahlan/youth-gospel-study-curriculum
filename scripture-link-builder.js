@@ -101,62 +101,72 @@ var scripture_match = {
 }
 var re_scripture_match = /([0-9]+\s+?)?([\w|&]+)[^\S\n]+(\d+):((\d+)((–|,\s+)(\d+))?)/g;
 
-fs.readdir(dir, function(err, files) {
-	files.forEach(function(file) {
-		var str = fs.readFileSync(dir+'/'+file, 'utf8');
-		var copy = new String(str);
-		console.log(file,"\n");
-		var match = re_scripture_match.exec(str);
-		while(match != null) {
-			if (match) {
-				var s = "[";
-				var book = match[1] ? match[1]+match[2] : match[2];
-				var scrip_url;
-				var book_url;
-				var chapter = match[3];
-				var verses = match[4];
-				var scrip_dict;
-				for(var scrip_key in scripture_match) {//_.each(_.keys(scripture_match), function(book_short, key) {
-					if (_.contains(_.keys(scripture_match[scrip_key]), book)) {
-						scrip_dict = scripture_match[scrip_key];
-						scrip_url = scrip_key;
-						book_url = scrip_dict[book];
-					}
-					// if (_.contains(_.keys(scripture_match[book_short]), book)) {
-					// 	console.log("matched", scripture_match[key]);
-					// 	book_dict = scripture_match[book_short];
-					// 	//scrip_url
-					// 	book_url = book_dict[book];
-					// }
-				}//);
-				if (book === 'D&C') {
-					scrip_url = 'dc-testament';
-					book_url = 'dc';
+var files;
+
+if (process.argv.length >= 3) {
+	var file = process.argv[2].split("=")[1];
+	files = [file];
+}
+
+if (!files) {
+	var files = fs.readdirSync(dir);
+}
+
+
+files.forEach(function(file) {
+	var str = fs.readFileSync(dir+'/'+file, 'utf8');
+	var copy = new String(str);
+	//console.log(file,"\n");
+	var match = re_scripture_match.exec(str);
+	while(match != null) {
+		if (match) {
+			var s = "[";
+			var book = match[1] ? match[1]+match[2] : match[2];
+			var scrip_url;
+			var book_url;
+			var chapter = match[3];
+			var verses = match[4];
+			var scrip_dict;
+			for(var scrip_key in scripture_match) {//_.each(_.keys(scripture_match), function(book_short, key) {
+				if (_.contains(_.keys(scripture_match[scrip_key]), book)) {
+					scrip_dict = scripture_match[scrip_key];
+					scrip_url = scrip_key;
+					book_url = scrip_dict[book];
 				}
-				if (book === 'Faith') {
-					book = 'Articles of Faith';
-					scrip_url = 'pgp';
-					book_url = 'a-of-f';
-				}
-				s += book+" "+chapter+":"+match[4]+"](";
-				var url = "https://www.lds.org/scriptures/"+scrip_url+"/"+book_url+"/"+chapter;
-				if (verses) {
-					url += "."+verses;
-				}
-				//get rid of n dash
-				url = url.replace(/\u2013|\u2014/g, '-');
-				s += url+')';
-				//final markdown link
-				//console.log(s);
-				//final file string
-				console.log("replacing",match[0],"with",s);
-				copy = copy.replace(match[0], s);
+				// if (_.contains(_.keys(scripture_match[book_short]), book)) {
+				// 	console.log("matched", scripture_match[key]);
+				// 	book_dict = scripture_match[book_short];
+				// 	//scrip_url
+				// 	book_url = book_dict[book];
+				// }
+			}//);
+			if (book === 'D&C') {
+				scrip_url = 'dc-testament';
+				book_url = 'dc';
 			}
-			match = re_scripture_match.exec(str);
+			if (book === 'Faith') {
+				book = 'Articles of Faith';
+				scrip_url = 'pgp';
+				book_url = 'a-of-f';
+			}
+			s += book+" "+chapter+":"+match[4]+"](";
+			var url = "https://www.lds.org/scriptures/"+scrip_url+"/"+book_url+"/"+chapter;
+			if (verses) {
+				url += "."+verses;
+			}
+			//get rid of n dash
+			url = url.replace(/\u2013|\u2014/g, '-');
+			s += url+')';
+			//final markdown link
+			//console.log(s);
+			//final file string
+			//console.log("replacing",match[0],"with",s);
+			copy = copy.replace(match[0], s);
 		}
-		console.log('finished with ', file, '-------------------\n\n');
-		fs.writeFileSync(dir+'/'+file, copy);
-	});
+		match = re_scripture_match.exec(str);
+	}
+	console.log('finished with ', file, '-------------------\n\n');
+	fs.writeFileSync(dir+'/'+file, copy);
 });
 
 // var str = "## June 19: Obedience"+
