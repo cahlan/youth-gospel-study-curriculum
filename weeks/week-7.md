@@ -87,7 +87,7 @@ What things would you like to learn more about in the Gospel or the Church? Writ
 What does "enduring to the end" mean? How can I better endure?
 
 ### Study
-[2 Nephi 31:20–21](https://www.lds.org/scriptures/bofm/2-ne/31.20-21); [Moroni 6:4](https://www.lds.org/scriptures/bofm/moro/6.4); [D&C 20:37](https://www.lds.org/scriptures/dc-testament/dc/20.37); Articles of [Articles of Faith 1:3](https://www.lds.org/scriptures/pgp/a-of-f/1.3); [John 14:15, 21](https://www.lds.org/scriptures/nt/john/14.15, 21); [Ephesians 4:11–14](https://www.lds.org/scriptures/nt/eph/4.11-14); [Philippians 2:12](https://www.lds.org/scriptures/nt/philip/2.12)
+[2 Nephi 31:20–21](https://www.lds.org/scriptures/bofm/2-ne/31.20-21); [Moroni 6:4](https://www.lds.org/scriptures/bofm/moro/6.4); [D&C 20:37](https://www.lds.org/scriptures/dc-testament/dc/20.37); [Articles of Faith 1:3](https://www.lds.org/scriptures/pgp/a-of-f/1.3); [John 14:15, 21](https://www.lds.org/scriptures/nt/john/14.15, 21); [Ephesians 4:11–14](https://www.lds.org/scriptures/nt/eph/4.11-14); [Philippians 2:12](https://www.lds.org/scriptures/nt/philip/2.12)
 
 ### Activities / Challenges
 Talk to an elderly family member, an elderly ward member, or another elderly friend or relative and ask them questions about the Gospel and their testimony. Ask them about their "enduring to the end" and record any advice or promptings you receive from this experience.
