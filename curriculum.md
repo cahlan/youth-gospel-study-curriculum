@@ -11,6 +11,6 @@ Week | Topic
 [Week 5](weeks/week-5.md) | [The Commandments (Cont'd)](weeks/week-5.md)
 [Week 6](weeks/week-6.md) | [Catch Up Week](weeks/week-6.md)
 [Week 7](weeks/week-7.md) | [Laws and Ordinances](weeks/week-7.md)
-[Week 8](weeks/week-8.md) | [The Book of Mormon](weeks/week-8.md)
-[Week 9](weeks/week-9.md) | [How do I develop Christlike Attributes?](weeks/week-9.md)
+[Week 8](weeks/week-8.md) | [Catch Up Week](weeks/week-8.md)
+[Week 9](weeks/week-9.md) | [The Book of Mormon](weeks/week-9.md)
 [Week 10](weeks/week-10.md) | [How do I develop Christlike Attributes?](weeks/week-10.md)
