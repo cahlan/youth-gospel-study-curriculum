@@ -46,6 +46,7 @@ Answer the following questions in your journal:
 
 Study the questions and their accompanying scriptures below. Record your answers.
 
+Question | Possible Answers in the BoM
 :---|:---
 Is there a God? | [Alma 22](https://www.lds.org/scriptures/bofm/alma/22)
 What does Jesus Christ expect of me? | [2 Nephi 9](https://www.lds.org/scriptures/bofm/2-ne/9)
