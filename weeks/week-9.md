@@ -70,18 +70,20 @@ How can I avoid sin? | [Helaman 5](https://www.lds.org/scriptures/bofm/hel/5)
 ## July 29: The Truthfulness of the Book of Mormon
 
 ### Reflection Questions
+Do I know the Book of Mormon is true? If not, how can I know? What must I do to find out if it is true?
 
 ### Study
-A Witness and a Warning, Ezra Taft Benson, 4–5
+[Moroni 10:3-5](https://www.lds.org/scriptures/bofm/moro/10.3-5)
+
+Watch the video below of Elder Holland's testimony of the Book of Mormon.
+[![Video Elder Holland's testimony of the Book of Mormon](https://img.youtube.com/vi/SHY-Y9yraR8/0.jpg)](https://www.youtube.com/watch?v=SHY-Y9yraR8)
+
 
 ### Activities / Challenges
 Obtain a copy of the Book of Mormon and write your testimony inside the cover (you can ask the bishopric or the missionaries). Ponder and pray about who you could give this book to. It could be someone at work, a less active family member, a non-member friend, or much more. 
 
-## July 30: How Should You Use the Book of Mormon
+## July 30: The Book of Mormon, Another Testament of Jesus Christ
 
-### Reflection Questions
-
-### Study
+### Study, Activities / Challenges
 Read 2 Nephi 2, 9, 30, 31, 32, and highlight every reference to Jesus Christ. Make a list of the different names and titles for Christ used in these chapters. Underline the spoken words of Christ. Highlight His attributes and His actions. You might want to continue this practice as you read the entire Book of Mormon.
 
-### Activities / Challenges
