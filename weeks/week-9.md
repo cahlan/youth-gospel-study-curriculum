@@ -85,5 +85,5 @@ Obtain a copy of the Book of Mormon and write your testimony inside the cover (y
 ## July 30: The Book of Mormon, Another Testament of Jesus Christ
 
 ### Study, Activities / Challenges
-Read 2 Nephi 2, 9, 30, 31, 32, and highlight every reference to Jesus Christ. Make a list of the different names and titles for Christ used in these chapters. Underline the spoken words of Christ. Highlight His attributes and His actions. You might want to continue this practice as you read the entire Book of Mormon.
+Read 2 Nephi [2](https://www.lds.org/scriptures/bofm/2-ne/2), [9](https://www.lds.org/scriptures/bofm/2-ne/9), [30](https://www.lds.org/scriptures/bofm/2-ne/30), [31](https://www.lds.org/scriptures/bofm/2-ne/31), [32](https://www.lds.org/scriptures/bofm/2-ne/32), and highlight every reference to Jesus Christ. Make a list of the different names and titles for Christ used in these chapters. Underline the spoken words of Christ. Highlight His attributes and His actions. You might want to continue this practice as you read the entire Book of Mormon.
 
