@@ -1,5 +1,5 @@
 # How Do I Develop Christlike Attributes?
-## July 24: Faith in Jesus Christ
+## July 31: Faith in Jesus Christ
 
 ### Reflection Questions
 
@@ -8,7 +8,28 @@
 
 ### Activities / Challenges
 
-## July 25: Hope
+Using the ratings below, complete the following exercise:
+
+#### Response Key
+:---|:---  
+1 | never
+2 | sometimes
+3 | often
+4 | almost always
+5 | always
+
+
+____1. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)
+____2. I feel confident that God loves me. (1 Nephi 11:17)
+____3. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7)
+____4. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)
+____5. I have enough faith in Christ to obtain answers to my prayers. (Mosiah 27:14)
+____6. I think about the Savior during the day and remember what He has done for me. (D&C 20:77, 79)
+____7. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)
+____8. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)
+____9. I have enough faith in Christ to accomplish anything He wants me to do—even miracles, if necessary. (Moroni 7:33)
+
+## August 1: Hope
 
 ### Reflection Questions
 
@@ -18,7 +39,7 @@
 ### Activities / Challenges
 
 
-## July 26: Charity and Love
+## August 2: Charity and Love
 
 ### Reflection Questions
 
@@ -27,7 +48,7 @@
 
 ### Activities / Challenges
 
-## July 27: Virtue
+## August 3: Virtue
 
 ### Reflection Questions
 
@@ -37,7 +58,7 @@
 ### Activities / Challenges
 
 
-## July 28: Knowledge
+## August 4: Knowledge
 
 ### Reflection Questions
 
@@ -46,7 +67,7 @@
 
 ### Activities / Challenges
 
-## July 29: Patience
+## August 5: Patience
 
 ### Reflection Questions
 
@@ -55,7 +76,7 @@
 
 ### Activities / Challenges
 
-## July 30: Humility
+## August 6: Humility
 
 ### Reflection Questions
 
@@ -65,68 +86,7 @@
 ### Activities / Challenges
 
 
-# How Do I Develop Christlike Attributes? (Cont'd)
 
-## July 31: Diligence
-
-### Reflection Questions
-
-### Study
-Moroni 9:6; D&C 10:4; D&C 107:99–100; D&C 75:2–5; D&C 123:12–14; D&C 127:4; D&C 130:20–21; Mosiah 4:26–27; D&C 58:26–29
-
-### Activities / Challenges
-
-## August 1: Obedience
-
-### Reflection Questions
-
-### Study
-1 Nephi 2:3; Mosiah 5:8; Mosiah 15:7; D&C 82:8–10; Matthew 7:24–27; John 7:17; John 14:15; 1 Nephi 3:7; D&C 105:6; 2 Kings 5:1–14; Alma 56:45–48; Alma 57:21–27
-
-### Activities / Challenges
-
-## August 2: Developing Christlike Attributes
-
-### Reflection Questions
-
-### Study
-Mosiah 3:19; Alma 7:23; D&C 4; D&C 121:41–45; Articles of Faith 1:13; Philippians 4:8; 2 Peter 1:5–8
-
-### Activities / Challenges
-
-## August 3: Becoming Like Christ
-
-### Reflection Questions
-
-### Study
-The Challenge to Become
-
-### Activities / Challenges
-
-## August 4: 
-
-### Reflection Questions
-
-### Study
-3 Nephi 11–28
-
-### Activities / Challenges
-
-## August 5: 
-
-### Reflection Questions
-
-### Study
-
-### Activities / Challenges
-
-## August 6: 
-
-### Reflection Questions
-
-### Study
-
-### Activities / Challenges
 
 Response Key
 1	
@@ -146,15 +106,7 @@ Response Key
 
 Faith
 
-____1. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)
-____2. I feel confident that God loves me. (1 Nephi 11:17)
-____3. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7)
-____4. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)
-____5. I have enough faith in Christ to obtain answers to my prayers. (Mosiah 27:14)
-____6. I think about the Savior during the day and remember what He has done for me. (D&C 20:77, 79)
-____7. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)
-____8. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)
-____9. I have enough faith in Christ to accomplish anything He wants me to do—even miracles, if necessary. (Moroni 7:33)
+
 Hope
 
 ____10. One of my greatest desires is to inherit eternal life in the celestial kingdom of God. (Moroni 7:41)
