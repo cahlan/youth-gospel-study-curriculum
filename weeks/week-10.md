@@ -11,6 +11,8 @@
 Using the ratings below, complete the following exercise:
 
 #### Response Key
+
+Rating | Meaning
 :---|:---  
 1 | never
 2 | sometimes
@@ -19,15 +21,15 @@ Using the ratings below, complete the following exercise:
 5 | always
 
 
-____1. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)
-____2. I feel confident that God loves me. (1 Nephi 11:17)
-____3. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7)
-____4. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)
-____5. I have enough faith in Christ to obtain answers to my prayers. (Mosiah 27:14)
-____6. I think about the Savior during the day and remember what He has done for me. (D&C 20:77, 79)
-____7. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)
-____8. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)
-____9. I have enough faith in Christ to accomplish anything He wants me to do—even miracles, if necessary. (Moroni 7:33)
+`____1. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)`
+`____2. I feel confident that God loves me. (1 Nephi 11:17)`
+`____3. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7)`
+`____4. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)`
+`____5. I have enough faith in Christ to obtain answers to my prayers. (Mosiah 27:14)`
+`____6. I think about the Savior during the day and remember what He has done for me. (D&C 20:77, 79)`
+`____7. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)`
+`____8. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)`
+`____9. I have enough faith in Christ to accomplish anything He wants me to do—even miracles, if necessary. (Moroni 7:33)`
 
 ## August 1: Hope
 
