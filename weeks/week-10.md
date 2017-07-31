@@ -21,15 +21,15 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-* ____1. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)
-* ____2. I feel confident that God loves me. (1 Nephi 11:17)
-* ____3. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7)
-* ____4. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)
-* ____5. I have enough faith in Christ to obtain answers to my prayers. (Mosiah 27:14)
-* ____6. I think about the Savior during the day and remember what He has done for me. (D&C 20:77, 79)
-* ____7. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)
-* ____8. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)
-* ____9. I have enough faith in Christ to accomplish anything He wants me to do—even miracles, if necessary. (Moroni 7:33)
+* ____. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)
+* ____. I feel confident that God loves me. (1 Nephi 11:17)
+* ____. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7)
+* ____. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)
+* ____. I have enough faith in Christ to obtain answers to my prayers. (Mosiah 27:14)
+* ____. I think about the Savior during the day and remember what He has done for me. (D&C 20:77, 79)
+* ____. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)
+* ____. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)
+* ____. I have enough faith in Christ to accomplish anything He wants me to do—even miracles, if necessary. (Moroni 7:33)
 
 ## August 1: Hope
 
@@ -53,11 +53,10 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-* ____10. One of my greatest desires is to inherit eternal life in the celestial kingdom of God. (Moroni 7:41)
-* ____11. I am confident that I will have a happy and successful mission. (D&C 31:3–5)
-* ____12. I feel peaceful and optimistic about the future. (D&C 59:23)
-* ____13. I firmly believe that someday I will dwell with God and become like Him. (Ether 12:4)
-
+* ____. One of my greatest desires is to inherit eternal life in the celestial kingdom of God. (Moroni 7:41)
+* ____. I am confident that I will have a happy and successful mission. (D&C 31:3–5)
+* ____. I feel peaceful and optimistic about the future. (D&C 59:23)
+* ____. I firmly believe that someday I will dwell with God and become like Him. (Ether 12:4)
 
 ## August 2: Charity and Love
 
@@ -77,17 +76,16 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-____14. I feel a sincere desire for the eternal welfare and happiness of other people. (Mosiah 28:3)
-____15. When I pray, I ask for charity—the pure love of Christ. (Moroni 7:47–48)
-____16. I try to understand others’ feelings and see their point of view. (Jude 1:22)
-____17. I forgive others who have offended or wronged me. (Ephesians 4:32)
-____18. I try to help others when they are struggling or discouraged. (Mosiah 18:9)
-____19. When appropriate, I tell others that I love them and care about them. (Luke 7:12–15)
-____20. I look for opportunities to serve other people. (Mosiah 2:17)
-____21. I say positive things about others. (D&C 42:27)
-____22. I am kind and patient with others, even when they are hard to get along with. (Moroni 7:45)
-____23. I find joy in others’ achievements. (Alma 17:2–4)
-
+____. I feel a sincere desire for the eternal welfare and happiness of other people. (Mosiah 28:3)
+____. When I pray, I ask for charity—the pure love of Christ. (Moroni 7:47–48)
+____. I try to understand others’ feelings and see their point of view. (Jude 1:22)
+____. I forgive others who have offended or wronged me. (Ephesians 4:32)
+____. I try to help others when they are struggling or discouraged. (Mosiah 18:9)
+____. When appropriate, I tell others that I love them and care about them. (Luke 7:12–15)
+____. I look for opportunities to serve other people. (Mosiah 2:17)
+____. I say positive things about others. (D&C 42:27)
+____. I am kind and patient with others, even when they are hard to get along with. (Moroni 7:45)
+____. I find joy in others’ achievements. (Alma 17:2–4)
 
 ## August 3: Virtue
 
@@ -112,12 +110,12 @@ Rating | Meaning
 5 | always
 
 
-____24. I am clean and pure in heart. (Psalm 24:3–4)
-____25. I have no desire to do evil but to do good. (Mosiah 5:2)
-____26. I am dependable—I do what I say I will do. (Alma 53:20)
-____27. I focus on righteous, uplifting thoughts and put unwholesome thoughts out of my mind. (D&C 121:45)
-____28. I repent of my sins and strive to overcome my weaknesses. (D&C 49:26–28)
-____29. I feel the influence of the Holy Ghost in my life. (D&C 11:12–13)
+____. I am clean and pure in heart. (Psalm 24:3–4)
+____. I have no desire to do evil but to do good. (Mosiah 5:2)
+____. I am dependable—I do what I say I will do. (Alma 53:20)
+____. I focus on righteous, uplifting thoughts and put unwholesome thoughts out of my mind. (D&C 121:45)
+____. I repent of my sins and strive to overcome my weaknesses. (D&C 49:26–28)
+____. I feel the influence of the Holy Ghost in my life. (D&C 11:12–13)
 
 
 ## August 4: Knowledge
@@ -142,11 +140,11 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-____30. I feel confident in my understanding of gospel doctrines and principles. (Ether 3:19–20)
-____31. I study the scriptures daily. (John 5:39)
-____32. I earnestly seek to understand the truth and find answers to my questions. (D&C 6:7)
-____33. I receive knowledge and guidance through the Spirit. (1 Nephi 4:6)
-____34. I love and cherish the doctrines and principles of the gospel. (2 Nephi 4:15)
+____. I feel confident in my understanding of gospel doctrines and principles. (Ether 3:19–20)
+____. I study the scriptures daily. (John 5:39)
+____. I earnestly seek to understand the truth and find answers to my questions. (D&C 6:7)
+____. I receive knowledge and guidance through the Spirit. (1 Nephi 4:6)
+____. I love and cherish the doctrines and principles of the gospel. (2 Nephi 4:15)
 
 ## August 5: Patience
 
@@ -170,6 +168,13 @@ Rating | Meaning
 4 | almost always
 5 | always
 
+____. I wait patiently for the blessings and promises of the Lord to be fulfilled. (2 Nephi 10:17)
+____. I am able to wait for things without getting upset or frustrated. (Romans 8:25)
+____. I am patient and long-suffering with the challenges of being a missionary. (Alma 17:11)
+____. I am patient with the faults and weaknesses of others. (Romans 15:1)
+____. I am patient with myself and rely on the Lord as I work to overcome my weaknesses. (Ether 12:27)
+____. I face adversity and afflictions calmly and hopefully. (Alma 34:40–41)
+
 ## August 6: Humility
 
 ### Reflection Questions
@@ -192,8 +197,6 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-
-
 ____41. I am meek and lowly in heart. (Matthew 11:29)
 ____42. I rely on the Lord for help. (Alma 26:12)
 ____43. I am sincerely grateful for the blessings I have received from the Lord. (Alma 7:23)
@@ -204,12 +207,6 @@ ____46. I strive to be submissive to the Lord’s will, whatever it may be. (Mos
 
 Patience
 
-____35. I wait patiently for the blessings and promises of the Lord to be fulfilled. (2 Nephi 10:17)
-____36. I am able to wait for things without getting upset or frustrated. (Romans 8:25)
-____37. I am patient and long-suffering with the challenges of being a missionary. (Alma 17:11)
-____38. I am patient with the faults and weaknesses of others. (Romans 15:1)
-____39. I am patient with myself and rely on the Lord as I work to overcome my weaknesses. (Ether 12:27)
-____40. I face adversity and afflictions calmly and hopefully. (Alma 34:40–41)
 Humility
 Diligence
 
