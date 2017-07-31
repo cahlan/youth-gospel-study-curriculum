@@ -5,7 +5,7 @@
 [See questions below]
 
 ### Study
-[Alma 32:21](https://www.lds.org/scriptures/bofm/alma/32.21); [Ether 12:6](https://www.lds.org/scriptures/bofm/ether/12.6); [Hebrews 11:1see footnote b](https://www.lds.org/scriptures/nt/heb/11.1); Bible Dictionary, “Faith”; [2 Nephi 25:29](https://www.lds.org/scriptures/bofm/2-ne/25.29); [2 Nephi 26:13](https://www.lds.org/scriptures/bofm/2-ne/26.13); [Mosiah 4:6–12](https://www.lds.org/scriptures/bofm/mosiah/4.6-12); [Helaman 15:7–8](https://www.lds.org/scriptures/bofm/helaman/15.7-8); [Ether 12:7–22](https://www.lds.org/scriptures/bofm/ether/12.7-22); [Moroni 7:33](https://www.lds.org/scriptures/bofm/moro/7.33); [Romans 10:17](https://www.lds.org/scriptures/nt/rom/10.17); [Hebrews 11](https://www.lds.org/scriptures/nt/heb/11?lang=eng); [Mosiah 3:17](https://www.lds.org/scriptures/bofm/mosiah/3.17); [Mosiah 5:1–15](https://www.lds.org/scriptures/bofm/mosiah/5.1-15); [Helaman 5:9–12](https://www.lds.org/scriptures/bofm/helaman/5.9-12); [John 14:6](https://www.lds.org/scriptures/nt/john/14.6)
+[Alma 32:21](https://www.lds.org/scriptures/bofm/alma/32.21); [Ether 12:6](https://www.lds.org/scriptures/bofm/ether/12.6); [Hebrews 11:1, see footnote b](https://www.lds.org/scriptures/nt/heb/11.1); Bible Dictionary, “Faith”; [2 Nephi 25:29](https://www.lds.org/scriptures/bofm/2-ne/25.29); [2 Nephi 26:13](https://www.lds.org/scriptures/bofm/2-ne/26.13); [Mosiah 4:6–12](https://www.lds.org/scriptures/bofm/mosiah/4.6-12); [Helaman 15:7–8](https://www.lds.org/scriptures/bofm/helaman/15.7-8); [Ether 12:7–22](https://www.lds.org/scriptures/bofm/ether/12.7-22); [Moroni 7:33](https://www.lds.org/scriptures/bofm/moro/7.33); [Romans 10:17](https://www.lds.org/scriptures/nt/rom/10.17); [Hebrews 11](https://www.lds.org/scriptures/nt/heb/11?lang=eng); [Mosiah 3:17](https://www.lds.org/scriptures/bofm/mosiah/3.17); [Mosiah 5:1–15](https://www.lds.org/scriptures/bofm/mosiah/5.1-15); [Helaman 5:9–12](https://www.lds.org/scriptures/bofm/helaman/5.9-12); [John 14:6](https://www.lds.org/scriptures/nt/john/14.6)
 
 ### Activities / Challenges
 
@@ -37,7 +37,7 @@ Rating | Meaning
 [See questions below]
 
 ### Study
-[2 Nephi 31:20](https://www.lds.org/scriptures/bofm/2-ne/31.20); [Alma 58:10–11](https://www.lds.org/scriptures/bofm/alma/58.10-11); [Ether 12:4, 32](https://www.lds.org/scriptures/bofm/ether/12.4); [Moroni 7:40–48](https://www.lds.org/scriptures/bofm/moro/7.40-48); [D&C 59:23](https://www.lds.org/scriptures/dc-testament/dc/59.23); [D&C 138:14](https://www.lds.org/scriptures/dc-testament/dc/138.14); [[Romans 8:24–25](https://www.lds.org/scriptures/nt/rom/8.24-25)](https://www.lds.org/scriptures/nt/rom/8.24-25); [Hebrews 6:10–20](https://www.lds.org/scriptures/nt/heb/6.10-20); Topical Guide, “Hope”
+[2 Nephi 31:20](https://www.lds.org/scriptures/bofm/2-ne/31.20); [Alma 58:10–11](https://www.lds.org/scriptures/bofm/alma/58.10-11); [Ether 12:4, 32](https://www.lds.org/scriptures/bofm/ether/12.4); [Moroni 7:40–48](https://www.lds.org/scriptures/bofm/moro/7.40-48); [D&C 59:23](https://www.lds.org/scriptures/dc-testament/dc/59.23); [D&C 138:14](https://www.lds.org/scriptures/dc-testament/dc/138.14); [Romans 8:24–25](https://www.lds.org/scriptures/nt/rom/8.24-25)](https://www.lds.org/scriptures/nt/rom/8.24-25); [Hebrews 6:10–20](https://www.lds.org/scriptures/nt/heb/6.10-20); Topical Guide, “Hope”
 
 ### Activities / Challenges
 
@@ -76,16 +76,16 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-____. I feel a sincere desire for the eternal welfare and happiness of other people. (Mosiah 28:3)
-____. When I pray, I ask for charity—the pure love of Christ. (Moroni 7:47–48)
-____. I try to understand others’ feelings and see their point of view. (Jude 1:22)
-____. I forgive others who have offended or wronged me. (Ephesians 4:32)
-____. I try to help others when they are struggling or discouraged. (Mosiah 18:9)
-____. When appropriate, I tell others that I love them and care about them. (Luke 7:12–15)
-____. I look for opportunities to serve other people. (Mosiah 2:17)
-____. I say positive things about others. (D&C 42:27)
-____. I am kind and patient with others, even when they are hard to get along with. (Moroni 7:45)
-____. I find joy in others’ achievements. (Alma 17:2–4)
+* ____. I feel a sincere desire for the eternal welfare and happiness of other people. (Mosiah 28:3)
+* ____. When I pray, I ask for charity—the pure love of Christ. (Moroni 7:47–48)
+* ____. I try to understand others’ feelings and see their point of view. (Jude 1:22)
+* ____. I forgive others who have offended or wronged me. (Ephesians 4:32)
+* ____. I try to help others when they are struggling or discouraged. (Mosiah 18:9)
+* ____. When appropriate, I tell others that I love them and care about them. (Luke 7:12–15)
+* ____. I look for opportunities to serve other people. (Mosiah 2:17)
+* ____. I say positive things about others. (D&C 42:27)
+* ____. I am kind and patient with others, even when they are hard to get along with. (Moroni 7:45)
+* ____. I find joy in others’ achievements. (Alma 17:2–4)
 
 ## August 3: Virtue
 
@@ -93,7 +93,7 @@ ____. I find joy in others’ achievements. (Alma 17:2–4)
 [See questions below]
 
 ### Study
-[D&C 4:6](https://www.lds.org/scriptures/dc-testament/dc/4.6); [D&C 25:2](https://www.lds.org/scriptures/dc-testament/dc/25.2); [D&C 38:24](https://www.lds.org/scriptures/dc-testament/dc/38.24); [D&C 46:33](https://www.lds.org/scriptures/dc-testament/dc/46.33); [D&C 121:45–46](https://www.lds.org/scriptures/dc-testament/dc/121.45-46); Articles of [Articles of Faith 1:13](https://www.lds.org/scriptures/pgp/a-of-f/1.13); [2 Peter 1:3–8](https://www.lds.org/scriptures/nt/2-pet/1.3-8); Topical Guide, “Virtue”
+[D&C 4:6](https://www.lds.org/scriptures/dc-testament/dc/4.6); [D&C 25:2](https://www.lds.org/scriptures/dc-testament/dc/25.2); [D&C 38:24](https://www.lds.org/scriptures/dc-testament/dc/38.24); [D&C 46:33](https://www.lds.org/scriptures/dc-testament/dc/46.33); [D&C 121:45–46](https://www.lds.org/scriptures/dc-testament/dc/121.45-46); [Articles of Faith 1:13](https://www.lds.org/scriptures/pgp/a-of-f/1.13); [2 Peter 1:3–8](https://www.lds.org/scriptures/nt/2-pet/1.3-8); Topical Guide, “Virtue”
 
 ### Activities / Challenges
 
@@ -109,13 +109,12 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-
-____. I am clean and pure in heart. (Psalm 24:3–4)
-____. I have no desire to do evil but to do good. (Mosiah 5:2)
-____. I am dependable—I do what I say I will do. (Alma 53:20)
-____. I focus on righteous, uplifting thoughts and put unwholesome thoughts out of my mind. (D&C 121:45)
-____. I repent of my sins and strive to overcome my weaknesses. (D&C 49:26–28)
-____. I feel the influence of the Holy Ghost in my life. (D&C 11:12–13)
+* ____. I am clean and pure in heart. (Psalm 24:3–4)
+* ____. I have no desire to do evil but to do good. (Mosiah 5:2)
+* ____. I am dependable—I do what I say I will do. (Alma 53:20)
+* ____. I focus on righteous, uplifting thoughts and put unwholesome thoughts out of my mind. (D&C 121:45)
+* ____. I repent of my sins and strive to overcome my weaknesses. (D&C 49:26–28)
+* ____. I feel the influence of the Holy Ghost in my life. (D&C 11:12–13)
 
 
 ## August 4: Knowledge
@@ -140,11 +139,11 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-____. I feel confident in my understanding of gospel doctrines and principles. (Ether 3:19–20)
-____. I study the scriptures daily. (John 5:39)
-____. I earnestly seek to understand the truth and find answers to my questions. (D&C 6:7)
-____. I receive knowledge and guidance through the Spirit. (1 Nephi 4:6)
-____. I love and cherish the doctrines and principles of the gospel. (2 Nephi 4:15)
+* ____. I feel confident in my understanding of gospel doctrines and principles. (Ether 3:19–20)
+* ____. I study the scriptures daily. (John 5:39)
+* ____. I earnestly seek to understand the truth and find answers to my questions. (D&C 6:7)
+* ____. I receive knowledge and guidance through the Spirit. (1 Nephi 4:6)
+* ____. I love and cherish the doctrines and principles of the gospel. (2 Nephi 4:15)
 
 ## August 5: Patience
 
@@ -168,12 +167,12 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-____. I wait patiently for the blessings and promises of the Lord to be fulfilled. (2 Nephi 10:17)
-____. I am able to wait for things without getting upset or frustrated. (Romans 8:25)
-____. I am patient and long-suffering with the challenges of being a missionary. (Alma 17:11)
-____. I am patient with the faults and weaknesses of others. (Romans 15:1)
-____. I am patient with myself and rely on the Lord as I work to overcome my weaknesses. (Ether 12:27)
-____. I face adversity and afflictions calmly and hopefully. (Alma 34:40–41)
+* ____. I wait patiently for the blessings and promises of the Lord to be fulfilled. (2 Nephi 10:17)
+* ____. I am able to wait for things without getting upset or frustrated. (Romans 8:25)
+* ____. I am patient and long-suffering with the challenges of being a missionary. (Alma 17:11)
+* ____. I am patient with the faults and weaknesses of others. (Romans 15:1)
+* ____. I am patient with myself and rely on the Lord as I work to overcome my weaknesses. (Ether 12:27)
+* ____. I face adversity and afflictions calmly and hopefully. (Alma 34:40–41)
 
 ## August 6: Humility
 
@@ -197,29 +196,10 @@ Rating | Meaning
 4 | almost always
 5 | always
 
-____41. I am meek and lowly in heart. (Matthew 11:29)
-____42. I rely on the Lord for help. (Alma 26:12)
-____43. I am sincerely grateful for the blessings I have received from the Lord. (Alma 7:23)
-____44. My prayers are earnest and sincere. (Enos 1:4)
-____45. I appreciate direction from my leaders or teachers. (2 Nephi 9:28)
-____46. I strive to be submissive to the Lord’s will, whatever it may be. (Mosiah 24:15)
+* ____. I am meek and lowly in heart. (Matthew 11:29)
+* ____. I rely on the Lord for help. (Alma 26:12)
+* ____. I am sincerely grateful for the blessings I have received from the Lord. (Alma 7:23)
+* ____. My prayers are earnest and sincere. (Enos 1:4)
+* ____. I appreciate direction from my leaders or teachers. (2 Nephi 9:28)
+* ____. I strive to be submissive to the Lord’s will, whatever it may be. (Mosiah 24:15)
 
-
-Patience
-
-Humility
-Diligence
-
-____47. I work effectively, even when I’m not under pressure or close supervision. (D&C 58:26–27)
-____48. I focus my efforts on the most important things. (Matthew 23:23)
-____49. I have a personal prayer at least twice a day. (Alma 34:18–27)
-____50. I focus my thoughts on my calling as a missionary. (D&C 4:2, 5)
-____51. I set goals and plan regularly. (D&C 88:119)
-____52. I work hard until the job is completed successfully. (D&C 10:4)
-____53. I find joy and satisfaction in my work. (Alma 36:24–25)
-Obedience
-
-____54. When I pray, I ask for strength to resist temptation and to do what is right. (3 Nephi 18:15)
-____55. I keep the required commandments to be worthy of a temple recommend. (D&C 97:8)
-____56. I willingly obey the mission rules and follow the counsel of my leaders. (Hebrews 13:17)
-____57. I strive to live in accordance with the laws and principles of the gospel. (D&C 41:5)
