@@ -1,4 +1,4 @@
-# How do I recognize the Holy Spirit?
+# The "Tender Mercies of the Lord"
 
 ## May 29: Personal Revelation
 
