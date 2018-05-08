@@ -12,7 +12,7 @@ As you study the scriptures below, record in your study journal how the concepts
 
 * What can I learn about how the Savior saves?
 * What is it about the nature of Jesus Christ that makes Him eager to save?
-* How might I need deliverance or saving?
+* How have I, or how might I need deliverance or saving?
 
 ### Study
 
