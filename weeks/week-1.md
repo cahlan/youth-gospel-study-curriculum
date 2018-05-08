@@ -25,7 +25,7 @@ Finally, study Elder Bednar's talk, ["The Tender Mercies of the Lord"](https://w
 
 Besides the promptings and learnings you receive as you study, write down in your journal experiences you recall of being delivered by God. Ponder and record what those experiences taught you, and how your faith and trust in the Lord was affected as a result.
 
-Read and ponder the Hymn, Redeemer of Israel
+Read and ponder the Hymn, _Redeemer of Israel_
 
 > > 1. Redeemer of Israel,
 > > Our only delight,
@@ -63,3 +63,10 @@ Read and ponder the Hymn, Redeemer of Israel
 > > He speaks! and eternity,
 > > Filled with his voice,
 > > Re-echoes the praise of the Lord.
+
+Ask yourself these questions, and record your answers:
+* Ancient Israel wandered in the wilderness as they were tested and purified from sin. Have there been times in your life when you've wandered in sin? Have you "cried" to the Lord from your own personal desert?
+* Have you felt the "hope to [your] desolate heart" mentioned in verse 5? Have you felt the figurative light of the Savior's face?
+* Do you know that he is coming, not only to gather Israel, but to gather _you_, personally? That He will "lead [you] to Zion in love?"
+
+Record your testimony and what you've learned about the Savior, the Redeemer of Israsel.
