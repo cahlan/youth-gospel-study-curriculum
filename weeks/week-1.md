@@ -1,10 +1,12 @@
-# Week 1: The "Tender Mercies of the Lord"
+# Week 1: The Power of Deliverance
 
 ### Introduction 
 
 One of the principal roles of Jesus Christ is that of Savior. Ancient Israel was constantly reminded of Jehovah's ability to rescue them from precarious situations, whether it be from famine, war, or opression. Nephi repeatedly taught that those who trust in the Lord can depend on Him for deliverance.
 
-Let's study more how the Savior and his tender mercies have blessed those whose stories are in the Book of Mormon and understand how those Tender Mercies apply to you in your life.
+The Book of Mormon contains multiple powerful examples of the Savior's deliverance from physical and spiritual captivity.
+
+Let's study more how the Savior and his mercies of strength and deliverance have blessed those whose stories are in the Book of Mormon and understand how those mercies apply to you in your life.
 
 ### Study
 
@@ -14,8 +16,16 @@ As you study the scriptures below, record in your study journal how the concepts
 * What is it about the nature of Jesus Christ that makes Him eager to save?
 * How have I, or how might I need deliverance or saving?
 
+#### Scriptures
+
+* [Nephi and his family](https://www.lds.org/scriptures/bofm/1-ne/): you could start with 1 Nephi, chapters 3-5, 7, and 2 Nephi, chapter 4
+* [The people of Limhi](https://www.lds.org/scriptures/mosiah/21)
+** see also [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20)
+* [people of Alma](https://www.lds.org/scriptures/bofm/mosiah/24)
+* [The sons of Helaman](https://www.lds.org/scriptures/bofm/alma/56)
+
 [3 Nephi 22:7-8,10](https://www.lds.org/scriptures/bofm/3-ne/22.8,10), [Alma 18:41](https://www.lds.org/scriptures/bofm/alma/18.41), [Alma 32:13](https://www.lds.org/scriptures/bofm/alma/32.13), [Alma 24:14,25](https://www.lds.org/scriptures/bofm/alma/24.14,25], [Mosiah 4:2](https://www.lds.org/scriptures/bofm/mosiah/4.2), [Alma 2:30](https://www.lds.org/scriptures/bofm/alma/2.30), [Ether 6:12](https://www.lds.org/scriptures/bofm/ether/6.12), [1 Nephi 8:8](https://www.lds.org/scriptures/bofm/1-ne/8.8), 
-[1 Nephi 21:10,13](https://www.lds.org/scriptures/1-ne/21.10,13), [Mosiah 28:4](https://www.lds.org/scriptures/mosiah/28.4), [Alma 36:18](https://www.lds.org/scriptures/alma/36.18), [Mosiah 15:9](https://www.lds.org/scriptures/mosiah/15.9), [3 Nephi 17:7](https://www.lds.org/scriptures/3-ne/17.7), [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20), [Mosiah 27:28](https://www.lds.org/scriptures/mosiah/27.28), [Jacob 6:5](https://www.lds.org/scriptures/jacob/6.5)
+[1 Nephi 21:10,13](https://www.lds.org/scriptures/1-ne/21.10,13), [Mosiah 28:4](https://www.lds.org/scriptures/mosiah/28.4), [Alma 36:18](https://www.lds.org/scriptures/alma/36.18), [Mosiah 15:9](https://www.lds.org/scriptures/mosiah/15.9), [3 Nephi 17:7](https://www.lds.org/scriptures/3-ne/17.7), [Mosiah 27:28](https://www.lds.org/scriptures/mosiah/27.28), [Jacob 6:5](https://www.lds.org/scriptures/jacob/6.5)
 
 Finally, study Elder Bednar's talk, ["The Tender Mercies of the Lord"](https://www.lds.org/general-conference/2005/04/the-tender-mercies-of-the-lord?lang=eng)
 
