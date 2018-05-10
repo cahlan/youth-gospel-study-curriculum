@@ -23,11 +23,13 @@ As you study the scriptures below, record in your study journal how the concepts
 * [The people of Limhi](https://www.lds.org/scriptures/mosiah/21)
    * see also [Mosiah 25:8,10,16](https://www.lds.org/scriptures/bofm/mosiah/25.8,10,16), [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20),
 * [The people of Alma](https://www.lds.org/scriptures/bofm/mosiah/24)
-* The sons of Mosiah, (Alma, chapters [17](https://www.lds.org/scriptures/bofm/alma/17)-[21](https://www.lds.org/scriptures/bofm/alma/21)
+* The sons of Mosiah, (Alma, chapters [17](https://www.lds.org/scriptures/bofm/alma/17)-[21](https://www.lds.org/scriptures/bofm/alma/21))
 * [The sons of Helaman](https://www.lds.org/scriptures/bofm/alma/56)
 * The defense of the Nephies
+  * [After the destruction of Ammonihah](https://www.lds.org/scriptures/bofm/alma/16)
+  * The battle with Zarahemnah, Alma [43](https://www.lds.org/scriptures/bofm/alma/43)-[45](https://www.lds.org/scriptures/bofm/alma/45)
   * [Re-taking the city of Manti](https://www.lds.org/scriptures/alma/58)
-* [Defending against the Gadianton robbers](https://www.lds.org/scriptures/bofm/3-ne/4)
+* [Defense against the Gadianton robbers](https://www.lds.org/scriptures/bofm/3-ne/4)
 
 [3 Nephi 22:7-8,10](https://www.lds.org/scriptures/bofm/3-ne/22.8,10), [Alma 18:41](https://www.lds.org/scriptures/bofm/alma/18.41), [Alma 32:13](https://www.lds.org/scriptures/bofm/alma/32.13), [Alma 24:14,25](https://www.lds.org/scriptures/bofm/alma/24.14,25], [Mosiah 4:2](https://www.lds.org/scriptures/bofm/mosiah/4.2), [Alma 2:30](https://www.lds.org/scriptures/bofm/alma/2.30), [Ether 6:12](https://www.lds.org/scriptures/bofm/ether/6.12), [1 Nephi 8:8](https://www.lds.org/scriptures/bofm/1-ne/8.8), 
 [1 Nephi 21:10,13](https://www.lds.org/scriptures/1-ne/21.10,13), [Mosiah 28:4](https://www.lds.org/scriptures/mosiah/28.4), [Alma 36:18](https://www.lds.org/scriptures/alma/36.18), [Mosiah 15:9](https://www.lds.org/scriptures/mosiah/15.9), [3 Nephi 17:7](https://www.lds.org/scriptures/3-ne/17.7), [Mosiah 27:28](https://www.lds.org/scriptures/mosiah/27.28), [Jacob 6:5](https://www.lds.org/scriptures/jacob/6.5)
