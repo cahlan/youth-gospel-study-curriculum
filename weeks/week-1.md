@@ -23,7 +23,7 @@ As you study the scriptures below, record in your study journal how the concepts
 * [The people of Limhi](https://www.lds.org/scriptures/mosiah/21)
    * see also [Mosiah 25:8,10,16](https://www.lds.org/scriptures/bofm/mosiah/25.8,10,16), [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20),
 * [The people of Alma](https://www.lds.org/scriptures/bofm/mosiah/24)
-* The sons of Mosiah, (Alma, chapters [17](https://www.lds.org/scriptures/bofm/alma/17)-[21](https://www.lds.org/scriptures/bofm/alma/21))
+* The sons of Mosiah, (Alma, chapters [17](https://www.lds.org/scriptures/bofm/alma/17)-[21](https://www.lds.org/scriptures/bofm/alma/21), see also Mosiah [27](https://www.lds.org/scriptures/bofm/mosiah/27), [28:4](https://www.lds.org/scriptures/bofm/mosiah/28.4) and [Alma 36](https://www.lds.org/scriptures/bofm/alma/36))
 * [The sons of Helaman](https://www.lds.org/scriptures/bofm/alma/56)
 * The defense of the Nephies
   * [After the destruction of Ammonihah](https://www.lds.org/scriptures/bofm/alma/16)
@@ -33,10 +33,11 @@ As you study the scriptures below, record in your study journal how the concepts
 * [Defense against the Gadianton robbers](https://www.lds.org/scriptures/bofm/3-ne/4)
 * [The Journey of the Brother of Jared and his family](https://www.lds.org/scriptures/bofm/ether/6)
 
+##### Miscellaneous Scriptures about the Lord's Deliverance
 [3 Nephi 22:7-8,10](https://www.lds.org/scriptures/bofm/3-ne/22.8,10), [Alma 32:13](https://www.lds.org/scriptures/bofm/alma/32.13), [Alma 24:14,25](https://www.lds.org/scriptures/bofm/alma/24.14,25), [Mosiah 4:2](https://www.lds.org/scriptures/bofm/mosiah/4.2), [Alma 2:30](https://www.lds.org/scriptures/bofm/alma/2.30), [1 Nephi 8:8](https://www.lds.org/scriptures/bofm/1-ne/8.8), 
-[1 Nephi 21:10,13](https://www.lds.org/scriptures/bofm/1-ne/21.10,13), [Mosiah 28:4](https://www.lds.org/scriptures/bofm/mosiah/28.4), [Alma 36:18](https://www.lds.org/scriptures/bofm/alma/36.18), [Mosiah 15:9](https://www.lds.org/scriptures/bofm/mosiah/15.9), [3 Nephi 17:7](https://www.lds.org/scriptures/bofm/3-ne/17.7), [Mosiah 27:28](https://www.lds.org/scriptures/bofm/mosiah/27.28), [Jacob 6:5](https://www.lds.org/scriptures/bofm/jacob/6.5)
+[1 Nephi 21:10,13](https://www.lds.org/scriptures/bofm/1-ne/21.10,13), [Mosiah 15:9](https://www.lds.org/scriptures/bofm/mosiah/15.9), [3 Nephi 17:7](https://www.lds.org/scriptures/bofm/3-ne/17.7), [Jacob 6:5](https://www.lds.org/scriptures/bofm/jacob/6.5)
 
-Helaman 12
+Study Helaman 12. How does the Lord's deliverance affect the children of men? Does the natural man recognize or remember his deliverance? How does the Lord reveal himself to man through deliverance?
 
 Finally, study Elder Bednar's talk, ["The Tender Mercies of the Lord"](https://www.lds.org/general-conference/2005/04/the-tender-mercies-of-the-lord?lang=eng)
 
