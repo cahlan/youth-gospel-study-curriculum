@@ -37,7 +37,7 @@ As you study the scriptures below, record in your study journal how the concepts
 [3 Nephi 22:7-8,10](https://www.lds.org/scriptures/bofm/3-ne/22.8,10), [Alma 32:13](https://www.lds.org/scriptures/bofm/alma/32.13), [Alma 24:14,25](https://www.lds.org/scriptures/bofm/alma/24.14,25), [Mosiah 4:2](https://www.lds.org/scriptures/bofm/mosiah/4.2), [Alma 2:30](https://www.lds.org/scriptures/bofm/alma/2.30), [1 Nephi 8:8](https://www.lds.org/scriptures/bofm/1-ne/8.8), 
 [1 Nephi 21:10,13](https://www.lds.org/scriptures/bofm/1-ne/21.10,13), [Mosiah 15:9](https://www.lds.org/scriptures/bofm/mosiah/15.9), [3 Nephi 17:7](https://www.lds.org/scriptures/bofm/3-ne/17.7), [Jacob 6:5](https://www.lds.org/scriptures/bofm/jacob/6.5)
 
-Study Helaman 12. How does the Lord's deliverance affect the children of men? Does the natural man recognize or remember his deliverance? How does the Lord reveal himself to man through deliverance?
+Study [Helaman 12](https://www.lds.org/scriptures/bofm/hel/12). How does the Lord's deliverance affect the children of men? Does the natural man recognize or remember his deliverance? How does the Lord reveal himself to man through deliverance?
 
 Finally, study Elder Bednar's talk, ["The Tender Mercies of the Lord"](https://www.lds.org/general-conference/2005/04/the-tender-mercies-of-the-lord?lang=eng)
 
