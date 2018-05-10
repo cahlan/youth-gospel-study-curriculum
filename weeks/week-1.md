@@ -20,7 +20,7 @@ As you study the scriptures below, record in your study journal how the concepts
 
 * [Nephi and his family](https://www.lds.org/scriptures/bofm/1-ne/): you could start with 1 Nephi, chapters 3-5, 7, and 2 Nephi, chapter 4
 * [The people of Limhi](https://www.lds.org/scriptures/mosiah/21)
-** see also [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20)
+   * see also [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20)
 * [people of Alma](https://www.lds.org/scriptures/bofm/mosiah/24)
 * [The sons of Helaman](https://www.lds.org/scriptures/bofm/alma/56)
 
