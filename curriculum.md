@@ -4,7 +4,7 @@
 
 Week | Topic
 :---|:---
-[Week 1](weeks/week-1.md) | [The Tender Mercies of the Lord](weeks/week-1.md)
+[Week 1](weeks/week-1.md) | [The Power of Deliverance](weeks/week-1.md)
 [Week 2] | [Coming Soon]
 [Week 3] | [Coming Soon]
 [Week 4] | [Coming Soon]
