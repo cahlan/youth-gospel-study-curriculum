@@ -39,10 +39,6 @@ As you study the scriptures below, record in your study journal how the concepts
 
 Study [Helaman 12](https://www.lds.org/scriptures/bofm/hel/12). How does the Lord's deliverance affect the children of men? Does the natural man recognize or remember his deliverance? How does the Lord reveal himself to man through deliverance?
 
-Finally, study Elder Bednar's talk, ["The Tender Mercies of the Lord"](https://www.lds.org/general-conference/2005/04/the-tender-mercies-of-the-lord?lang=eng)
-
-How have you seen the "tender mercies" of the Lord in your life? Have you seen gifts, blessings, kindnesses, or influences that have made you "mighty, even unto the power of deliverance?"
-
 ### Invitations
 
 Besides the promptings and learnings you receive as you study, write down in your journal experiences you recall of being delivered by God. Ponder and record what those experiences taught you, and how your faith and trust in the Lord was affected as a result.
