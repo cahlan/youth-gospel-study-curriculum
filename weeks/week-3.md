@@ -37,7 +37,7 @@ Watch the following videos, and ask yourself the same questions above about Pres
 
 [![A Mother's Hope Dieter F Uchtdorf](https://d3vv6lp55qjaqc.cloudfront.net/items/3H2N2A2i3w1z0B2E2P3b/Image%202018-05-30%20at%2011.57.18%20AM.png?X-CloudApp-Visitor-Id=f2fe4ab8bd1a06ee60356a9a8d8d1004&v=e5cc408b)](https://www.youtube.com/watch?v=9ssHhzi7alI)
 
-Read President Uchtdorf's talk, "[Your Wonderful Journey Home](https://www.lds.org/general-conference/2013/04/your-wonderful-journey-home?lang=eng)"
+Study President Uchtdorf's talk, "[Your Wonderful Journey Home](https://www.lds.org/general-conference/2013/04/your-wonderful-journey-home?lang=eng)"
 
 
 #### Reflection
