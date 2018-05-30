@@ -8,8 +8,6 @@ One recurring item we see in the Book of Mormon is the concept of a journey. Con
 
 ### Study
 
-#### Scriptures
-
 As you study the following journeys in the Book of Mormon, try to answer the following questions in order to find similarities or differences between the accounts.
 
 1. Who commanded this group of people to take their journey?
@@ -18,36 +16,62 @@ As you study the following journeys in the Book of Mormon, try to answer the fol
 4. Describe moments where the company doubted or feared their journey would fail.
 5. Describe moments where the Lord miraculously assisted or delivered the company.
 6. How did the people respond once they arrived at their destination?
+7. What changed? How were the people different, or how did they change during their journeys?
+
+#### Scriptures
 
 * Lehi's Family, 1 Nephi [1](https://www.lds.org/scriptures/bofm/1-ne/1)-[7](https://www.lds.org/scriptures/bofm/1-ne/7), [16](https://www.lds.org/scriptures/bofm/1-ne/16)-[18](https://www.lds.org/scriptures/bofm/1-ne/18)
-* The Exodus of Nephi, 2 Nephi 5:3-17
-* King Limhi's Exodus from the land of Nephi, Mosiah 21:5, 13-15, 36, 22:1-2, 8-15, 
-* Alma and his people's Exodus from the land of Nephi, Mosiah 24:8-25
+** See also [Mosiah 1:15-17](https://www.lds.org/scriptures/bofm/mosiah/1.15-17), [Alma 37:38-42](https://www.lds.org/scriptures/bofm/alma/37.38-42)
+* The Exodus of Nephi, [2 Nephi 5:3-17](https://www.lds.org/scriptures/bofm/2-ne/5.3-17)
+* King Limhi's Exodus from the land of Nephi, [Mosiah 21:5, 13-15, 36](https://www.lds.org/scriptures/bofm/mosiah/21.5,13-15,36); [22:1-2, 8-15](https://www.lds.org/scriptures/bofm/mosiah/22.1-2,8-15); [25:5-10, 24](https://www.lds.org/scriptures/bofm/mosiah/25.5-10,24)
+* Alma and his people's Exodus from the land of Nephi, [Mosiah 24:8-25](https://www.lds.org/scriptures/bofm/mosiah/24.8-25)
+* Ammon and the sons of Mosiah, [Alma 17:1-2, 6-18](https://www.lds.org/scriptures/bofm/alma/17.1-2,6-18); [26:9, 12, 23-28, 35, 37](https://www.lds.org/scriptures/bofm/alma/26.9,12,23-28,35,37)
 
-* Ammon and the sons of Mosiah
-* King Limhi's Exodus
+#### Other
 
-Study Elder Bednar's talk, ["The Tender Mercies of the Lord"](https://www.lds.org/general-conference/2005/04/the-tender-mercies-of-the-lord?lang=eng)
+President Uchtdorf's experiences as a young boy in war-torn Europe and as a refugee are powerful examples of journey's where the Lord's help was critical to his family's safety.
+
+Watch the following videos, and ask yourself the same questions above about President Uchtdorf's journeys:
+
+[![The Journey Dieter F Uchtdorf](https://i1.ytimg.com/vi/ilNeYhAwiUc/hqdefault.jpg)](https://www.youtube.com/watch?v=ilNeYhAwiUc&t=3s)
+
+[![A Mother's Hope Dieter F Uchtdorf](https://i.ytimg.com/vi/9ssHhzi7alI/hqdefault.jpg?sqp=-oaymwEZCPYBEIoBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLCW9_brp-8UONBDrUbxO8FN-F_4Xg)](https://www.youtube.com/watch?v=9ssHhzi7alI)
+
+Read President Uchtdorf's talk, "[Your Wonderful Journey Home](https://www.lds.org/general-conference/2013/04/your-wonderful-journey-home?lang=eng)"
+
 
 #### Reflection
 
-In your study journal, think about the last week. How have you seen the Lord's tender mercies this week? How about in the past month? The past year?
+In your study journal, think about the journeys of your life. How have you experienced those journeys? Perhaps you have been asked to leave certain things behind in this journey. Maybe you have experienced bumps, "unexpected bends in the road," or pains, sicknesses, or challenges that seemed very difficult to overcome. You might even be experiencing a difficult portion of your journey right now.
 
-Remember, Elder Bednar listed the following as possible evidences of tender mercies:
-* individualized blessings
-* strength
-* protection
-* assurances
-* guidance
-* loving-kindnesses
-* consolation
-* support
-* spiritual gifts
+Ponder how the Lord has strengthened, helped, guided, blessed, delivered, and led you to better places, whether physically or otherwise. Consider your overall life journey. Where have you come from, and where is your destination? How will the Lord help you to arrive safely? How does He desire that you change along the way?
 
 ### Invitations
 
-* Consider praying to better recognize the tender mercies of the Lord provided in your life
-* Ask a parent or someone who has known you since a child how they've observed the hand of the Lord in your life
-* As Elder Bednar taught, our desires, faithfulness, and obedience help us to discern the Lord's mercies in our lives. Consider whether you could improve in any of those areas: desire, faith, obedience.
+* Consider applying the princples learned in your study to your mortal journey: obedience, heeding the word of the Lord, trusting in him, allowing him to guide you, and being grateful for the journey as well as hoping for a joyful conclusion. In which of these areas could you improve? Make a plan to do so this week.
+* Along our personal journeys, we do not walk alone. Think and pray about someone you know who is experiencing a particularly difficult journey. How might you help them? How can you be an answer to their prayers for help? Pray about what to do, then make a plan to do it.
+
+Read and ponder the Hymn, _Jesus, Savior, Pilot Me_
+
+> > 1. Jesus, Savior, pilot me
+> > Over life’s tempestuous sea;
+> > Unknown waves before me roll,
+> > Hiding rock and treach’rous shoal.
+> > Chart and compass came from thee;
+> > Jesus, Savior, pilot me.
+> > 2. As a mother stills her child,
+> > Thou canst hush the ocean wild;
+> > Boist’rous waves obey thy will
+> > When thou say’st to them, “Be still!”
+> > Wondrous Sov’reign of the sea,
+> > Jesus, Savior, pilot me.
+> > 3. When at last I near the shore,
+> > And the fearful breakers roar
+> > ’Twixt me and the peaceful rest,
+> > Then, while leaning on thy breast,
+> > May I hear thee say to me,
+> > “Fear not; I will pilot thee.”
+
+You could also study and ponder the hymns [Master the Tempest is Raging](https://www.lds.org/music/library/hymns/master-the-tempest-is-raging?lang=eng&_r=1), [Does the Journey Seem Long?](https://www.lds.org/music/library/hymns/does-the-journey-seem-long?lang=eng), [The Lord is My Shepherd](https://www.lds.org/music/library/hymns/the-lord-is-my-shepherd-women?lang=eng), and [Be Still My Soul](https://www.lds.org/music/library/hymns/be-still-my-soul?lang=eng)
 
 Record any impressions or answers you receive.
