@@ -20,7 +20,7 @@ As you study the scriptures below, record in your study journal how the concepts
 
 * [Nephi and his family](https://www.lds.org/scriptures/bofm/1-ne/): you could start with 1 Nephi, chapters 3-5, 7, and 2 Nephi, chapter 4
 * [The people of Limhi](https://www.lds.org/scriptures/mosiah/21)
-   * see also [Mosiah 25:8,10,16](https://www.lds.org/scriptures/bofm/mosiah/25.8,10,16), [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20),
+   * see also [Mosiah 25:8,10,14,16](https://www.lds.org/scriptures/bofm/mosiah/25.8,10,14,16), [Mosiah 29:20](https://www.lds.org/scriptures/mosiah/29.20),
 * The sons of Mosiah, (Alma, chapters [17](https://www.lds.org/scriptures/bofm/alma/17)-[21](https://www.lds.org/scriptures/bofm/alma/21), see also Mosiah [27](https://www.lds.org/scriptures/bofm/mosiah/27), [28:4](https://www.lds.org/scriptures/bofm/mosiah/28.4) and [Alma 36](https://www.lds.org/scriptures/bofm/alma/36))
 * [The sons of Helaman](https://www.lds.org/scriptures/bofm/alma/56)
 * The defense of the Nephites
