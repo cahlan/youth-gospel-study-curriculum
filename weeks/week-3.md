@@ -33,9 +33,9 @@ President Uchtdorf's experiences as a young boy in war-torn Europe and as a refu
 
 Watch the following videos, and ask yourself the same questions above about President Uchtdorf's journeys:
 
-[![The Journey Dieter F Uchtdorf](https://i1.ytimg.com/vi/ilNeYhAwiUc/hqdefault.jpg)](https://www.youtube.com/watch?v=ilNeYhAwiUc&t=3s)
+[![The Journey Dieter F Uchtdorf](https://d3vv6lp55qjaqc.cloudfront.net/items/0V3u1G2a1f282t3d2B3e/Image%202018-05-30%20at%2011.56.38%20AM.png?X-CloudApp-Visitor-Id=f2fe4ab8bd1a06ee60356a9a8d8d1004&v=ed9f78b8)](https://www.youtube.com/watch?v=ilNeYhAwiUc&t=3s)
 
-[![A Mother's Hope Dieter F Uchtdorf](https://i.ytimg.com/vi/9ssHhzi7alI/hqdefault.jpg?sqp=-oaymwEZCPYBEIoBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLCW9_brp-8UONBDrUbxO8FN-F_4Xg)](https://www.youtube.com/watch?v=9ssHhzi7alI)
+[![A Mother's Hope Dieter F Uchtdorf](https://d3vv6lp55qjaqc.cloudfront.net/items/3H2N2A2i3w1z0B2E2P3b/Image%202018-05-30%20at%2011.57.18%20AM.png?X-CloudApp-Visitor-Id=f2fe4ab8bd1a06ee60356a9a8d8d1004&v=e5cc408b](https://www.youtube.com/watch?v=9ssHhzi7alI)
 
 Read President Uchtdorf's talk, "[Your Wonderful Journey Home](https://www.lds.org/general-conference/2013/04/your-wonderful-journey-home?lang=eng)"
 
