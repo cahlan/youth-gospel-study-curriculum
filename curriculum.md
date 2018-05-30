@@ -5,8 +5,8 @@
 Week | Topic
 :---|:---
 [Week 1](weeks/week-1.md) | [The Power of Deliverance](weeks/week-1.md)
-[Week 2] | [Coming Soon]
-[Week 3] | [Coming Soon]
+[Week 2](weeks/week-2.md) | [The "Tender Mercies of the Lord"](weeks/week-2.md)
+[Week 3](weeks/week-3.md) | [The "Journey into the Wilderness"](weeks/week-3.md)
 [Week 4] | [Coming Soon]
 [Week 5] | [Coming Soon]
 [Week 6] | [Coming Soon]
