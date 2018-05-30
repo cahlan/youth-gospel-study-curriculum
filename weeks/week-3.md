@@ -29,7 +29,7 @@ As you study the following journeys in the Book of Mormon, try to answer the fol
 
 #### Other
 
-President Uchtdorf's experiences as a young boy in war-torn Europe and as a refugee are powerful examples of journey's where the Lord's help was critical to his family's safety.
+President Uchtdorf's experiences as a young boy in war-torn Europe and as a refugee are powerful examples of journeys where the Lord's help was critical to his family's safety.
 
 Watch the following videos, and ask yourself the same questions above about President Uchtdorf's journeys:
 
