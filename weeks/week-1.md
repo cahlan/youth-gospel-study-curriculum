@@ -83,6 +83,6 @@ Read and ponder the Hymn, _Redeemer of Israel_
 Ask yourself these questions, and record your answers:
 * Ancient Israel wandered in the wilderness as they were tested and purified from sin. Have there been times in your life when you've wandered in sin? Have you "cried" to the Lord from your own personal desert?
 * Have you felt the "hope to [your] desolate heart" mentioned in verse 5? Have you felt the figurative light of the Savior's face?
-* Do you know that he is coming, not only to gather Israel, but to gather _you_, personally? That He will "lead [you] to Zion in love?"
+* Do *you* know that He is coming, not only to gather Israel, but to gather _you_, personally? That He will "lead [you] to Zion in love?"
 
 Record your testimony and what you've learned about the Savior, the Redeemer of Israsel.
