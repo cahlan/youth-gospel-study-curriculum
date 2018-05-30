@@ -21,7 +21,7 @@ As you study the following journeys in the Book of Mormon, try to answer the fol
 #### Scriptures
 
 * Lehi's Family, 1 Nephi [1](https://www.lds.org/scriptures/bofm/1-ne/1)-[7](https://www.lds.org/scriptures/bofm/1-ne/7), [16](https://www.lds.org/scriptures/bofm/1-ne/16)-[18](https://www.lds.org/scriptures/bofm/1-ne/18)
-** See also [Mosiah 1:15-17](https://www.lds.org/scriptures/bofm/mosiah/1.15-17), [Alma 37:38-42](https://www.lds.org/scriptures/bofm/alma/37.38-42)
+ * See also [Mosiah 1:15-17](https://www.lds.org/scriptures/bofm/mosiah/1.15-17), [Alma 37:38-42](https://www.lds.org/scriptures/bofm/alma/37.38-42)
 * The Exodus of Nephi, [2 Nephi 5:3-17](https://www.lds.org/scriptures/bofm/2-ne/5.3-17)
 * King Limhi's Exodus from the land of Nephi, [Mosiah 21:5, 13-15, 36](https://www.lds.org/scriptures/bofm/mosiah/21.5,13-15,36); [22:1-2, 8-15](https://www.lds.org/scriptures/bofm/mosiah/22.1-2,8-15); [25:5-10, 24](https://www.lds.org/scriptures/bofm/mosiah/25.5-10,24)
 * Alma and his people's Exodus from the land of Nephi, [Mosiah 24:8-25](https://www.lds.org/scriptures/bofm/mosiah/24.8-25)
