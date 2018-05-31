@@ -1,91 +1,63 @@
-# The Commandments
+# Week 3: Remember
 
-## June 19: Obedience
+### Introduction
 
-### Reflection Questions
-Why is obedience important? Why should I be obedient?
-
-### Study
-[2 Nephi 2:26–29](https://www.lds.org/scriptures/bofm/2-ne/2.26-29); [Alma 12:31](https://www.lds.org/scriptures/bofm/alma/12.31); [D&C 58:26–29](https://www.lds.org/scriptures/dc-testament/dc/58.26-29); [D&C 82:8–10](https://www.lds.org/scriptures/dc-testament/dc/82.8-10); [D&C 130:20–21](https://www.lds.org/scriptures/dc-testament/dc/130.20-21); [John 14:15, 21](https://www.lds.org/scriptures/nt/john/14.15, 21); [Ecclesiastes 12:13](https://www.lds.org/scriptures/ot/eccl/12.13)
-
-### Activities / Challenges
-Read the following quote by President Monson:
-
->“God’s commandments are not given to frustrate us or to become obstacles to our happiness. Just the opposite is true. He who created us and who loves us perfectly knows just how we need to live our lives in order to obtain the greatest happiness possible. He has provided us with guidelines which, if we follow them, will see us safely through this often treacherous mortal journey. We remember the words of the familiar hymn: ‘Keep the commandments! In this there is safety; in this there is peace’ [see “Keep the Commandments,” Hymns, no. 303].”
-
-Contrast President Monson's message with what the world teachese us. How is obedience viewed by the world?
-
-## June 20: Pray Often
-
-### Reflection Questions
-Why is prayer a commandment? What should I pray for?
+The word "remember" occurs at least 157 times in the Book of Mormon, almost as many occurrences as the Old Testament. This week we'll study why remembering is so important, and what it is that we need to remember.
 
 ### Study
-[2 Nephi 32:8–9](https://www.lds.org/scriptures/bofm/2-ne/32.8-9); [Enos 1:1–12](https://www.lds.org/scriptures/bofm/enos/1.1-12); [Alma 34:17–28](https://www.lds.org/scriptures/bofm/alma/34.17-28); [Moroni 10:3–5](https://www.lds.org/scriptures/bofm/moro/10.3-5); [D&C 6:22–23](https://www.lds.org/scriptures/dc-testament/dc/6.22-23); [D&C 8:2–3](https://www.lds.org/scriptures/dc-testament/dc/8.2-3); [D&C 9:7–9](https://www.lds.org/scriptures/dc-testament/dc/9.7-9); [D&C 19:28](https://www.lds.org/scriptures/dc-testament/dc/19.28); [1 Kings 19:11–12](https://www.lds.org/scriptures/ot/1-kgs/19.11-12); Bible Dictionary, “Prayer”
 
-### Activities / Challenges
-Examine the Bible Dictionary's entry for Prayer. How do your prayers compare with the kind of prayer described in the Bible Dictionary? What can you do to make your prayers more meaningful?
+Study the ways "remember" is used in the following scriptures.
 
-## June 21: Study the Scriptures
+#### Scriptures
 
-### Reflection Questions
-What do the scriptures contain for me? Why is studying the scriptures a commandment?
+* Lehi's Family, 1 Nephi [1](https://www.lds.org/scriptures/bofm/1-ne/1)-[7](https://www.lds.org/scriptures/bofm/1-ne/7), [16](https://www.lds.org/scriptures/bofm/1-ne/16)-[18](https://www.lds.org/scriptures/bofm/1-ne/18)
 
-### Study
-[1 Nephi 19:22–23](https://www.lds.org/scriptures/bofm/1-ne/19.22-23); [2 Nephi 9:50–51](https://www.lds.org/scriptures/bofm/2-ne/9.50-51); [2 Nephi 25:26](https://www.lds.org/scriptures/bofm/2-ne/25.26); [2 Nephi 29:1–13](https://www.lds.org/scriptures/bofm/2-ne/29.1-13); [2 Nephi 31:19–20](https://www.lds.org/scriptures/bofm/2-ne/31.19-20); [2 Nephi 32:3–5](https://www.lds.org/scriptures/bofm/2-ne/32.3-5); [Alma 32:28–30](https://www.lds.org/scriptures/bofm/alma/32.28-30); [John 5:39](https://www.lds.org/scriptures/nt/john/5.39); [John 20:31](https://www.lds.org/scriptures/nt/john/20.31); [2 Timothy 3:14–17](https://www.lds.org/scriptures/nt/2-tim/3.14-17); [2 Peter 1:20–21](https://www.lds.org/scriptures/nt/2-pet/1.20-21)
-
-### Activities / Challenges
-
-Watch Elder Richard G. Scott's [message about the power of the scriptures](https://www.lds.org/youth/video/power-of-the-scriptures?lang=eng). 
-[![Video Power of Scriptures Richard G Scott](https://d3vv6lp55qjaqc.cloudfront.net/items/2m0k0k2l352r1b3D0Y2D/Screen%20Shot%202017-06-19%20at%2012.59.47%20AM.png?X-CloudApp-Visitor-Id=1038689&v=68d23076)](https://www.lds.org/youth/video/power-of-the-scriptures?lang=eng)
-
-Ask yourself: which scripture passages have become like "friends" to you? When have the scriptures unlocked revelation for you, or given you peace, hope, or confidence?
-
-## June 22: Keep the Sabbath Day Holy
-
-### Reflection Questions
-Why is keeping the Sabbath Day Holy a commandment? What can I do to keep the Sabbath more fully?
-
-### Study
-[3 Nephi 18:1–25](https://www.lds.org/scriptures/bofm/3-ne/18.1-25); [D&C 59:9–15](https://www.lds.org/scriptures/dc-testament/dc/59.9-15); [Exodus 20:8–11](https://www.lds.org/scriptures/ot/ex/20.8-11); [Exodus 31:12–17](https://www.lds.org/scriptures/ot/ex/31.12-17); [Isaiah 58:13–14](https://www.lds.org/scriptures/ot/isa/58.13-14)
-
-### Activities / Challenges
-Read Elder Nelson's [talk from a recent conference about the Sabbath Day](https://www.lds.org/general-conference/2015/04/the-sabbath-is-a-delight?lang=eng). Make note of Elder Nelson's deliberate avoidance of lists. What things do you do on the Sabbath, and what sign does that show to the Lord?
-
-## June 23: Follow the Prophet
-
-### Reflection Questions
-What is the prophet's role in the Lord's church? Why is it a commandment to follow the prophet?
-
-### Study
-[Mosiah 15:11–12](https://www.lds.org/scriptures/bofm/mosiah/15.11-12); [Alma 13:1–16](https://www.lds.org/scriptures/bofm/alma/13.1-16); [3 Nephi 12:1–2](https://www.lds.org/scriptures/bofm/3-ne/12.1-2); [D&C 1:37–38](https://www.lds.org/scriptures/dc-testament/dc/1.37-38); [D&C 21:1–7](https://www.lds.org/scriptures/dc-testament/dc/21.1-7); [D&C 136:37–38](https://www.lds.org/scriptures/dc-testament/dc/136.37-38); [John 15:16](https://www.lds.org/scriptures/nt/john/15.16); [Acts 10:34–44](https://www.lds.org/scriptures/nt/acts/10.34-44); [Ephesians 2:19–20](https://www.lds.org/scriptures/nt/eph/2.19-20); [Ephesians 4:11–14](https://www.lds.org/scriptures/nt/eph/4.11-14); [Hebrews 5:4](https://www.lds.org/scriptures/nt/heb/5.4); [Amos 3:7](https://www.lds.org/scriptures/ot/amos/3.7)
-
-### Activities / Challenges
-Think about President Monson's life and teachings. What has he asked us to do? What have the other modern prophets asked us to do? How have you done in following this commandment, and what can you do better?
-
-## June 24: Keep the Ten Commandments
-
-### Reflection Questions
-How relevant are the ten commandments today? What do they teach us? What do they help us become?
-
-### Study
-[Mosiah 13](https://www.lds.org/scriptures/bofm/mosiah/13); [D&C 59:5–6](https://www.lds.org/scriptures/dc-testament/dc/59.5-6); [Matthew 22:36–40](https://www.lds.org/scriptures/nt/matt/22.36-40); [Exodus 20:1–17](https://www.lds.org/scriptures/ot/ex/20.1-17); [Deuteronomy 5:6–21](https://www.lds.org/scriptures/ot/deut/5.6-21)
-
-### Activities / Challenges
-See below for a short list of some of what modern prophets have said concerning keeping the ten commandments. Choose two that stick out to you, and study them. Record your impressions as you study.
-
-* [Serving false gods, Elder Oaks](https://www.lds.org/general-conference/2013/10/no-other-gods?lang=eng)
-* [Law of Chastity, Elder Bednar](https://www.lds.org/general-conference/2013/04/we-believe-in-being-chaste?lang=eng)
-* [The Sabbath Day, Elder Nelson](https://www.lds.org/general-conference/2015/04/the-sabbath-is-a-delight?lang=eng)
-* [Language, President Hinckley](https://www.lds.org/youth/article/take-not-the-name-of-god-in-vain?lang=eng)
-* [Honesty, President Hinckley](https://www.lds.org/ensign/1990/10/we-believe-in-being-honest?lang=eng&_r=1)
-* [Envying and coveting, Elder Holland](https://www.lds.org/general-conference/2002/04/the-other-prodigal?lang=eng)
-* ["Keep the Commandments," President Monson](https://www.lds.org/general-conference/2015/10/keep-the-commandments?lang=eng)
+#### Other
 
 
-## June 25: [Catch Up]
 
-### Instructions
-This day is a chance for you to catch up on your reading and studying, if you are behind.
 
-If you already are caught up, spend some time your journal. Think about the commandments you do a good job keeping, and the commandments that you struggle with. Make a plan to be more obedient to the Lord's commandments. How will you be blessed for this?
+#### Reflection
+
+Reflect on the things the Lord and his prophets consistently plead with the people to remember:
+* Covenants and Promises of the Lord
+* Warnings
+* The words of "fathers" or ancestors
+* The Lord's dealings with "fathers" or ancestors
+* Commandments and penalties
+* Our dependence on God
+* The mercy of God
+* 
+
+Do we need help remembering? Who helps us remember?
+
+### Invitations
+
+* Ponder the Sacrament hymn
+
+Read a talk
+
+Read and ponder the Hymn, _Jesus, Savior, Pilot Me_
+
+> > 1. Jesus, Savior, pilot me
+> > Over life’s tempestuous sea;
+> > Unknown waves before me roll,
+> > Hiding rock and treach’rous shoal.
+> > Chart and compass came from thee;
+> > Jesus, Savior, pilot me.
+> > 2. As a mother stills her child,
+> > Thou canst hush the ocean wild;
+> > Boist’rous waves obey thy will
+> > When thou say’st to them, “Be still!”
+> > Wondrous Sov’reign of the sea,
+> > Jesus, Savior, pilot me.
+> > 3. When at last I near the shore,
+> > And the fearful breakers roar
+> > ’Twixt me and the peaceful rest,
+> > Then, while leaning on thy breast,
+> > May I hear thee say to me,
+> > “Fear not; I will pilot thee.”
+
+You could also study and ponder the hymns [Master the Tempest is Raging](https://www.lds.org/music/library/hymns/master-the-tempest-is-raging?lang=eng&_r=1), [Does the Journey Seem Long?](https://www.lds.org/music/library/hymns/does-the-journey-seem-long?lang=eng), [The Lord is My Shepherd](https://www.lds.org/music/library/hymns/the-lord-is-my-shepherd-women?lang=eng), and [Be Still My Soul](https://www.lds.org/music/library/hymns/be-still-my-soul?lang=eng)
+
+Record any impressions or answers you receive.
