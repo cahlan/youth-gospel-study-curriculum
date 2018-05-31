@@ -26,6 +26,7 @@ As you study the following journeys in the Book of Mormon, try to answer the fol
 * King Limhi's Exodus from the land of Nephi, [Mosiah 21:5, 13-15, 36](https://www.lds.org/scriptures/bofm/mosiah/21.5,13-15,36); [22:1-2, 8-15](https://www.lds.org/scriptures/bofm/mosiah/22.1-2,8-15); [25:5-10, 24](https://www.lds.org/scriptures/bofm/mosiah/25.5-10,24)
 * Alma and his people's Exodus from the land of Nephi, [Mosiah 24:8-25](https://www.lds.org/scriptures/bofm/mosiah/24.8-25)
 * Ammon and the sons of Mosiah, [Alma 17:1-2, 6-18](https://www.lds.org/scriptures/bofm/alma/17.1-2,6-18); [26:9, 12, 23-28, 35, 37](https://www.lds.org/scriptures/bofm/alma/26.9,12,23-28,35,37)
+* The Brother of Jared and his family's journey, [Ether 1:38-43](https://www.lds.org/scriptures/bofm/ether/1.38-43), [2](https://www.lds.org/scriptures/bofm/ether/2), [3:1-6](https://www.lds.org/scriptures/bofm/ether/3.1-6), [6:1-12](https://www.lds.org/scriptures/bofm/ether/6.1-12)
 
 #### Other
 
