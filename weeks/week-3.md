@@ -77,7 +77,10 @@ You could also study and ponder the hymns [Master the Tempest is Raging](https:/
 
 Record any impressions or answers you receive.
 
-## Transcript from video, "The Journey"
+
+
+
+### Transcript from video, "The Journey"
 
 ```
 The Journey
