@@ -45,9 +45,7 @@ Do we need help remembering? Who helps us remember? Find scriptures that explain
 #### Prayer on the Water
 > > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this wine to the souls of all those who drink of it, that they may do it in remembrance of the blood of thy Son, which was shed for them; that they may witness unto thee, O God, the Eternal Father, that they do always remember him, that they may have his Spirit to be with them. Amen.
 
-Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_? Write down your thoughts.
-
-For help, you could reference and study Elder Gong's talk, ["Always Remember Him."](https://www.lds.org/general-conference/2016/04/always-remember-him?lang=eng)
+Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_? Write down your thoughts. (For help, you could reference and study Elder Gong's talk, ["Always Remember Him."](https://www.lds.org/general-conference/2016/04/always-remember-him?lang=eng))
 
 Take this week and write down, each day, how you saw the Lord's hand in your life. Seek to _recognize_ and _remember_ how the Lord is influencing, blessing, and guiding your life. Record these impressions. This is what President Eyring said about trying this same experience:
 
