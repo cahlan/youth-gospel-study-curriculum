@@ -34,7 +34,7 @@ President Uchtdorf's experiences as a young boy in war-torn Europe and as a refu
 
 Watch the following videos, and ask yourself the same questions above about President Uchtdorf's journeys:
 
-[![The Journey Dieter F Uchtdorf](https://d3vv6lp55qjaqc.cloudfront.net/items/0V3u1G2a1f282t3d2B3e/Image%202018-05-30%20at%2011.56.38%20AM.png?X-CloudApp-Visitor-Id=f2fe4ab8bd1a06ee60356a9a8d8d1004&v=ed9f78b8)](https://www.youtube.com/watch?v=ilNeYhAwiUc&t=3s)
+[![The Journey Dieter F Uchtdorf](https://d3vv6lp55qjaqc.cloudfront.net/items/0V3u1G2a1f282t3d2B3e/Image%202018-05-30%20at%2011.56.38%20AM.png?X-CloudApp-Visitor-Id=f2fe4ab8bd1a06ee60356a9a8d8d1004&v=ed9f78b8)](https://www.youtube.com/watch?v=ilNeYhAwiUc&t=3s) (see below for a transcript, if you don't have internet access)
 
 [![A Mother's Hope Dieter F Uchtdorf](https://d3vv6lp55qjaqc.cloudfront.net/items/3H2N2A2i3w1z0B2E2P3b/Image%202018-05-30%20at%2011.57.18%20AM.png?X-CloudApp-Visitor-Id=f2fe4ab8bd1a06ee60356a9a8d8d1004&v=e5cc408b)](https://www.youtube.com/watch?v=9ssHhzi7alI)
 
@@ -76,3 +76,58 @@ Read and ponder the Hymn, _Jesus, Savior, Pilot Me_
 You could also study and ponder the hymns [Master the Tempest is Raging](https://www.lds.org/music/library/hymns/master-the-tempest-is-raging?lang=eng&_r=1), [Does the Journey Seem Long?](https://www.lds.org/music/library/hymns/does-the-journey-seem-long?lang=eng), [The Lord is My Shepherd](https://www.lds.org/music/library/hymns/the-lord-is-my-shepherd-women?lang=eng), and [Be Still My Soul](https://www.lds.org/music/library/hymns/be-still-my-soul?lang=eng)
 
 Record any impressions or answers you receive.
+
+## Transcript from video, "The Journey"
+
+```
+The Journey
+
+
+President Dieter F. Uchtdorf recalls fleeing, as a child, from war-torn East Germany with his mother. Read his full conference address here.
+
+https://www.lds.org/media-library/video/2016-11-5000-the-journey?lang=eng
+
+I grew up in Zwickau, in the former East Germany. When I was about 11 years old, my father fell under increased scrutiny as a political dissenter, and my parents felt that the only safe choice for our family would be to flee to West Germany. It was decided that the best plan was to leave at different times and follow different routes to the West, leaving all our belongings behind. 
+
+I was the youngest child, and my mother decided that she and I would walk across a mountain range separating the two countries. I remember that she packed a lunch as if we were going for a hike or a picnic in the mountains. 
+
+We took a train as far as we could and then walked for long hours, getting ever closer to the West German border. I could sense my mother's anxiety. She observed the area intensely to see if we were being followed. With each step, her legs and knees seemed to become weaker. I helped carry her heavy bag filled with food, vital documents, and family photos as we climbed up one last, long hill. Surely, she thought, we had passed the border by now. When she finally felt safe, we sat down and started to eat our picnic lunch. For the first time that day, I am sure, she breathed more easily. 
+
+It was only then that we noticed the border sign. It was still far ahead of us! We were having our picnic on the wrong side of the border. We were still in East Germany! 
+
+Border guards could show up any moment! 
+
+My mother frantically packed up our lunch, and we hurried up the hillside as quickly as we could. This time we didn't dare stop until we knew with certainty that we had reached the other side of the border. 
+
+My dear friends, I believe that every life is a collection of individual "journey stories." It might be wise to ask yourself how your journey is going. Are you on the right course? Are you becoming the person you were designed to be and wanted to become? Are you making choices that will help you to return to your Father in Heaven? 
+
+Dear young friends, God didn't send you on this journey only to wander aimlessly on your own. He wants you to come home to Him. He has given you loving parents and faithful Church leaders, along with a map that describes the terrain and identifies the dangers; the map shows you where peace and happiness can be found and will help you to plot your course back to your heavenly home. 
+
+As you joyfully use the gospel plan your loving Father has provided for your journey through life, it will lead you to holy places and will help you to rise to your divine potential. 
+
+Official Web site of The Church of Jesus Christ of Latter-day Saints.
+© 2015 by Intellectual Reserve, Inc. All rights reserved.
+```
+
+## Transcript from video, "A Mother's Hope"
+```
+A Mother's Hope
+
+
+When President Uchtdorf was a young child, he learned that his mother was a great example of how hope and faith can overcome fear.
+
+https://www.lds.org/media-library/video/2013-05-009-a-mothers-hope?lang=eng
+
+Toward the end of World War II, my mother decided to flee to Germany, where her parents were living. Though I was only three years old, I can still remember this time 
+
+of fear and hunger. Along the way, the train stopped 
+
+occasionally to get supplies. One night, during one of these stops, 
+
+my mother hurried out of the train to search for some food for her four children. I know with certainty, 
+
+her faith overcame her fear and her hope overcame her despair. 
+
+Official Web site of The Church of Jesus Christ of Latter-day Saints.
+© 2015 by Intellectual Reserve, Inc. All rights reserved.
+```
