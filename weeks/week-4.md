@@ -17,6 +17,8 @@ Study the ways "remember" is used in the following scriptures. Consider that the
 
 Study Elder Bednar's talk, "Exceeding Great and Precious Promises," and write down what Elder Bednar teaches about how to remember the "essential spiritual priorities."
 
+Some other talks you could study,
+* President Eyring, ["O Remember, Remember"](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
 
 #### Reflection
 
@@ -46,5 +48,12 @@ Do we need help remembering? Who helps us remember? Find scriptures that explain
 Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_?
 
 For help, you could reference and study Elder Gong's talk, ["Always Remember Him."](https://www.lds.org/general-conference/2016/04/always-remember-him?lang=eng)
+
+Take this week and write down, each day, how you saw the Lord's hand in your life. Seek to _recognize_ and _remember_ how the Lord is influencing, blessing, and guiding your life. Record these impressions. This is what President Eyring said about trying this same experience:
+
+> > I wrote down a few lines every day for years. I never missed a day no matter how tired I was or how early I would have to start the next day. Before I would write, I would ponder this question: “Have I seen the hand of God reaching out to touch us or our children or our family today?” As I kept at it, something began to happen. As I would cast my mind over the day, I would see evidence of what God had done for one of us that I had not recognized in the busy moments of the day. As that happened, and it happened often, I realized that trying to remember had allowed God to show me what He had done.
+
+> > More than gratitude began to grow in my heart. Testimony grew. I became ever more certain that our Heavenly Father hears and answers prayers. I felt more gratitude for the softening and refining that come because of the Atonement of the Savior Jesus Christ. And I grew more confident that the Holy Ghost can bring all things to our remembrance—even things we did not notice or pay attention to when they happened.
+[Henry B. Eyring, "O Rememeber, Remember," October, 2007.](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
 
 Record any impressions or answers you receive.
