@@ -37,7 +37,7 @@ Do we need help remembering? Who helps us remember? Find scriptures that explain
 
 ### Invitations
 
-* Study the sacrament prayers. If you haven't already, pray about this portion of your study. The sacrament prayers are sacred. They aren't just scripture, they are a part of an ordinance.
+* This Sunday, pay special attention to the sacrament prayers. If you haven't already, pray about and study these prayers. The sacrament prayers are sacred. They aren't just scripture, they are a part of an ordinance.
 
 #### Prayer on the Bread
 > > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this bread to the souls of all those who partake of it, that they may eat in remembrance of the body of thy Son, and witness unto thee, O God, the Eternal Father, that they are willing to take upon them the name of thy Son, and always remember him and keep his commandments which he has given them; that they may always have his Spirit to be with them. Amen.
@@ -45,7 +45,7 @@ Do we need help remembering? Who helps us remember? Find scriptures that explain
 #### Prayer on the Water
 > > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this wine to the souls of all those who drink of it, that they may do it in remembrance of the blood of thy Son, which was shed for them; that they may witness unto thee, O God, the Eternal Father, that they do always remember him, that they may have his Spirit to be with them. Amen.
 
-Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_?
+Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_? Write down your thoughts.
 
 For help, you could reference and study Elder Gong's talk, ["Always Remember Him."](https://www.lds.org/general-conference/2016/04/always-remember-him?lang=eng)
 
