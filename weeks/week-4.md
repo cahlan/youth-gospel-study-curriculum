@@ -1,4 +1,4 @@
-# Week 3: Remember
+# Week 4: Remember
 
 ### Introduction
 
@@ -6,15 +6,16 @@ The word "remember" occurs at least 157 times in the Book of Mormon, almost as m
 
 ### Study
 
-Study the ways "remember" is used in the following scriptures.
+Study the ways "remember" is used in the following scriptures. Consider that the command _remember_ can be used in different ways. Look up the [definition of the word remember](https://www.merriam-webster.com/dictionary/remember) and write down the usages you find so they can accompany your scripture study. You might add further usages you find as you study.
 
 #### Scriptures
 
-* Lehi's Family, 1 Nephi [1](https://www.lds.org/scriptures/bofm/1-ne/1)-[7](https://www.lds.org/scriptures/bofm/1-ne/7), [16](https://www.lds.org/scriptures/bofm/1-ne/16)-[18](https://www.lds.org/scriptures/bofm/1-ne/18)
+* Search LDS.org for all instances of "remember" in the Book of Mormon. Here's a [direct link](https://www.lds.org/scriptures/search?lang=eng&query=remember&testament=bofm) to the search.
+* Also (or if you don't have internet access), look up "Remember" in the topical guide ([link](https://www.lds.org/scriptures/tg/remember?lang=eng))
 
 #### Other
 
-
+Study Elder Bednar's talk, "Exceeding Great and Precious Promises," and write down what Elder Bednar teaches about how to remember the "essential spiritual priorities."
 
 
 #### Reflection
@@ -27,37 +28,23 @@ Reflect on the things the Lord and his prophets consistently plead with the peop
 * Commandments and penalties
 * Our dependence on God
 * The mercy of God
-* 
 
-Do we need help remembering? Who helps us remember?
+What keeps us you from remembering? What could you do better to remember the "spiritual priorities" and things you read in the scriptures?
+
+Do we need help remembering? Who helps us remember? Find scriptures that explain _how_ and _who_ helps us to remember.
 
 ### Invitations
 
-* Ponder the Sacrament hymn
+* Study the sacrament prayers. If you haven't already, pray about this portion of your study. The sacrament prayers are sacred. They aren't just scripture, they are a part of an ordinance.
 
-Read a talk
+#### Prayer on the Bread
+> > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this bread to the souls of all those who partake of it, that they may eat in remembrance of the body of thy Son, and witness unto thee, O God, the Eternal Father, that they are willing to take upon them the name of thy Son, and always remember him and keep his commandments which he has given them; that they may always have his Spirit to be with them. Amen.
 
-Read and ponder the Hymn, _Jesus, Savior, Pilot Me_
+#### Prayer on the Water
+> > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this wine to the souls of all those who drink of it, that they may do it in remembrance of the blood of thy Son, which was shed for them; that they may witness unto thee, O God, the Eternal Father, that they do always remember him, that they may have his Spirit to be with them. Amen.
 
-> > 1. Jesus, Savior, pilot me
-> > Over life’s tempestuous sea;
-> > Unknown waves before me roll,
-> > Hiding rock and treach’rous shoal.
-> > Chart and compass came from thee;
-> > Jesus, Savior, pilot me.
-> > 2. As a mother stills her child,
-> > Thou canst hush the ocean wild;
-> > Boist’rous waves obey thy will
-> > When thou say’st to them, “Be still!”
-> > Wondrous Sov’reign of the sea,
-> > Jesus, Savior, pilot me.
-> > 3. When at last I near the shore,
-> > And the fearful breakers roar
-> > ’Twixt me and the peaceful rest,
-> > Then, while leaning on thy breast,
-> > May I hear thee say to me,
-> > “Fear not; I will pilot thee.”
+Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_?
 
-You could also study and ponder the hymns [Master the Tempest is Raging](https://www.lds.org/music/library/hymns/master-the-tempest-is-raging?lang=eng&_r=1), [Does the Journey Seem Long?](https://www.lds.org/music/library/hymns/does-the-journey-seem-long?lang=eng), [The Lord is My Shepherd](https://www.lds.org/music/library/hymns/the-lord-is-my-shepherd-women?lang=eng), and [Be Still My Soul](https://www.lds.org/music/library/hymns/be-still-my-soul?lang=eng)
+For help, you could reference and study Elder Gong's talk, ["Always Remember Him."](https://www.lds.org/general-conference/2016/04/always-remember-him?lang=eng)
 
 Record any impressions or answers you receive.
