@@ -1,4 +1,4 @@
-# Week 10: "Another Testament of Jesus Christ"
+# Week 10: Another Testament of Jesus Christ
 
 ### Introduction
 
