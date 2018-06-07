@@ -1,205 +1,60 @@
-# How Do I Develop Christlike Attributes?
-## July 31: Faith in Jesus Christ
+# Week 10: "Another Testament of Jesus Christ"
 
-### Reflection Questions
-[See questions below]
+### Introduction
 
-### Study
-[Alma 32:21](https://www.lds.org/scriptures/bofm/alma/32.21); [Ether 12:6](https://www.lds.org/scriptures/bofm/ether/12.6); [Hebrews 11:1, see footnote b](https://www.lds.org/scriptures/nt/heb/11.1); Bible Dictionary, “Faith”; [2 Nephi 25:29](https://www.lds.org/scriptures/bofm/2-ne/25.29); [2 Nephi 26:13](https://www.lds.org/scriptures/bofm/2-ne/26.13); [Mosiah 4:6–12](https://www.lds.org/scriptures/bofm/mosiah/4.6-12); [Helaman 15:7–8](https://www.lds.org/scriptures/bofm/helaman/15.7-8); [Ether 12:7–22](https://www.lds.org/scriptures/bofm/ether/12.7-22); [Moroni 7:33](https://www.lds.org/scriptures/bofm/moro/7.33); [Romans 10:17](https://www.lds.org/scriptures/nt/rom/10.17); [Hebrews 11](https://www.lds.org/scriptures/nt/heb/11?lang=eng); [Mosiah 3:17](https://www.lds.org/scriptures/bofm/mosiah/3.17); [Mosiah 5:1–15](https://www.lds.org/scriptures/bofm/mosiah/5.1-15); [Helaman 5:9–12](https://www.lds.org/scriptures/bofm/helaman/5.9-12); [John 14:6](https://www.lds.org/scriptures/nt/john/14.6)
-
-### Activities / Challenges
-
-Using the ratings below, complete the following exercise:
-
-#### Response Key
-
-Rating | Meaning
-:---|:---  
-1 | never
-2 | sometimes
-3 | often
-4 | almost always
-5 | always
-
-* ____. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)
-* ____. I feel confident that God loves me. (1 Nephi 11:17)
-* ____. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7)
-* ____. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)
-* ____. I have enough faith in Christ to obtain answers to my prayers. (Mosiah 27:14)
-* ____. I think about the Savior during the day and remember what He has done for me. (D&C 20:77, 79)
-* ____. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)
-* ____. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)
-* ____. I have enough faith in Christ to accomplish anything He wants me to do—even miracles, if necessary. (Moroni 7:33)
-
-## August 1: Hope
-
-### Reflection Questions
-[See questions below]
+One of the promises the Lord makes to his faithful saints is that He will protect them. 
 
 ### Study
-[2 Nephi 31:20](https://www.lds.org/scriptures/bofm/2-ne/31.20); [Alma 58:10–11](https://www.lds.org/scriptures/bofm/alma/58.10-11); [Ether 12:4, 32](https://www.lds.org/scriptures/bofm/ether/12.4); [Moroni 7:40–48](https://www.lds.org/scriptures/bofm/moro/7.40-48); [D&C 59:23](https://www.lds.org/scriptures/dc-testament/dc/59.23); [D&C 138:14](https://www.lds.org/scriptures/dc-testament/dc/138.14); [Romans 8:24–25](https://www.lds.org/scriptures/nt/rom/8.24-25)](https://www.lds.org/scriptures/nt/rom/8.24-25); [Hebrews 6:10–20](https://www.lds.org/scriptures/nt/heb/6.10-20); Topical Guide, “Hope”
-
-### Activities / Challenges
-
-Using the ratings below, complete the following exercise:
-
-#### Response Key
-
-Rating | Meaning
-:---|:---  
-1 | never
-2 | sometimes
-3 | often
-4 | almost always
-5 | always
-
-* ____. One of my greatest desires is to inherit eternal life in the celestial kingdom of God. (Moroni 7:41)
-* ____. I am confident that I will have a happy and successful mission. (D&C 31:3–5)
-* ____. I feel peaceful and optimistic about the future. (D&C 59:23)
-* ____. I firmly believe that someday I will dwell with God and become like Him. (Ether 12:4)
-
-## August 2: Charity and Love
-
-### Reflection Questions
-[See questions below]
-
-### Study
-[Moroni 7:45–48](https://www.lds.org/scriptures/bofm/moro/7.45-48); [1 Corinthians 13](); Bible Dictionary, “Charity”; [1 Nephi 19:9](https://www.lds.org/scriptures/bofm/1-ne/19.9); [Alma 7:11–13](https://www.lds.org/scriptures/bofm/alma/7.11-13); [Ether 12:33–34](https://www.lds.org/scriptures/bofm/ether/12.33-34); [Luke 7:12–15](https://www.lds.org/scriptures/nt/luke/7.12-15); [2 Nephi 26:30](https://www.lds.org/scriptures/bofm/2-ne/26.30); [Mosiah 2:17](https://www.lds.org/scriptures/bofm/mosiah/2.17); [Mosiah 28:3](https://www.lds.org/scriptures/bofm/mosiah/28.3); [Alma 7:24](https://www.lds.org/scriptures/bofm/alma/7.24); [Ether 12:28](https://www.lds.org/scriptures/bofm/ether/12.28); [D&C 88:125](https://www.lds.org/scriptures/dc-testament/dc/88.125); [1 Timothy 4:12](https://www.lds.org/scriptures/nt/1-tim/4.12); [1 Peter 4:8](https://www.lds.org/scriptures/nt/1-pet/4.8);
-
-### Activities / Challenges
-
-Rating | Meaning
-:---|:---  
-1 | never
-2 | sometimes
-3 | often
-4 | almost always
-5 | always
-
-* ____. I feel a sincere desire for the eternal welfare and happiness of other people. (Mosiah 28:3)
-* ____. When I pray, I ask for charity—the pure love of Christ. (Moroni 7:47–48)
-* ____. I try to understand others’ feelings and see their point of view. (Jude 1:22)
-* ____. I forgive others who have offended or wronged me. (Ephesians 4:32)
-* ____. I try to help others when they are struggling or discouraged. (Mosiah 18:9)
-* ____. When appropriate, I tell others that I love them and care about them. (Luke 7:12–15)
-* ____. I look for opportunities to serve other people. (Mosiah 2:17)
-* ____. I say positive things about others. (D&C 42:27)
-* ____. I am kind and patient with others, even when they are hard to get along with. (Moroni 7:45)
-* ____. I find joy in others’ achievements. (Alma 17:2–4)
-
-## August 3: Virtue
-
-### Reflection Questions
-[See questions below]
-
-### Study
-[D&C 4:6](https://www.lds.org/scriptures/dc-testament/dc/4.6); [D&C 25:2](https://www.lds.org/scriptures/dc-testament/dc/25.2); [D&C 38:24](https://www.lds.org/scriptures/dc-testament/dc/38.24); [D&C 46:33](https://www.lds.org/scriptures/dc-testament/dc/46.33); [D&C 121:45–46](https://www.lds.org/scriptures/dc-testament/dc/121.45-46); [Articles of Faith 1:13](https://www.lds.org/scriptures/pgp/a-of-f/1.13); [2 Peter 1:3–8](https://www.lds.org/scriptures/nt/2-pet/1.3-8); Topical Guide, “Virtue”
-
-### Activities / Challenges
-
-Using the ratings below, complete the following exercise:
-
-#### Response Key
-
-Rating | Meaning
-:---|:---  
-1 | never
-2 | sometimes
-3 | often
-4 | almost always
-5 | always
-
-* ____. I am clean and pure in heart. (Psalm 24:3–4)
-* ____. I have no desire to do evil but to do good. (Mosiah 5:2)
-* ____. I am dependable—I do what I say I will do. (Alma 53:20)
-* ____. I focus on righteous, uplifting thoughts and put unwholesome thoughts out of my mind. (D&C 121:45)
-* ____. I repent of my sins and strive to overcome my weaknesses. (D&C 49:26–28)
-* ____. I feel the influence of the Holy Ghost in my life. (D&C 11:12–13)
 
 
-## August 4: Knowledge
 
-### Reflection Questions
-[See questions below]
+#### Scriptures
 
-### Study
-[Alma 17:2–3](https://www.lds.org/scriptures/bofm/alma/17.2-3); [D&C 88:77–80](https://www.lds.org/scriptures/dc-testament/dc/88.77-80); [2 Nephi 32:1–5](https://www.lds.org/scriptures/bofm/2-ne/32.1-5); [Moroni 10:5](https://www.lds.org/scriptures/bofm/moro/10.5); [D&C 42:61](https://www.lds.org/scriptures/dc-testament/dc/42.61); [D&C 76:5–10](https://www.lds.org/scriptures/dc-testament/dc/76.5-10); [D&C 88:118](https://www.lds.org/scriptures/dc-testament/dc/88.118); Bible Dictionary, “Knowledge”; Topical Guide, “Knowledge”"
+* Nephi
+* People of King Benjamin
+* Alma
+* Defense against the Lamanites (war chapter)
+* War against gaddianton robbers
 
-### Activities / Challenges
+#### Other
 
-Using the ratings below, complete the following exercise:
+Study Elder Bednar's talk, "Exceeding Great and Precious Promises," and write down what Elder Bednar teaches about how to remember the "essential spiritual priorities."
 
-#### Response Key
+Some other talks you could study,
+* President Eyring, ["O Remember, Remember"](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
 
-Rating | Meaning
-:---|:---  
-1 | never
-2 | sometimes
-3 | often
-4 | almost always
-5 | always
+#### Reflection
 
-* ____. I feel confident in my understanding of gospel doctrines and principles. (Ether 3:19–20)
-* ____. I study the scriptures daily. (John 5:39)
-* ____. I earnestly seek to understand the truth and find answers to my questions. (D&C 6:7)
-* ____. I receive knowledge and guidance through the Spirit. (1 Nephi 4:6)
-* ____. I love and cherish the doctrines and principles of the gospel. (2 Nephi 4:15)
+Reflect on the things the Lord and his prophets consistently plead with the people to remember:
+* Covenants and Promises of the Lord
+* Warnings
+* The words of "fathers" or ancestors
+* The Lord's dealings with "fathers" or ancestors
+* Commandments and penalties
+* Our dependence on God
+* The mercy of God
 
-## August 5: Patience
+What keeps us you from remembering? What could you do better to remember the "spiritual priorities" and things you read in the scriptures?
 
-### Reflection Questions
-[See questions below]
+Do we need help remembering? Who helps us remember? Find scriptures that explain _how_ and _who_ helps us to remember.
 
-### Study
-[Mosiah 23:21](https://www.lds.org/scriptures/bofm/mosiah/23.21); [Mosiah 24:9–16](https://www.lds.org/scriptures/bofm/mosiah/24.9-16); [Alma 31:31](https://www.lds.org/scriptures/bofm/alma/31.31); [Alma 32:41–43](https://www.lds.org/scriptures/bofm/alma/32.41-43); [Alma 34:40–41](https://www.lds.org/scriptures/bofm/alma/34.40-41); [D&C 101:38](https://www.lds.org/scriptures/dc-testament/dc/101.38); [Romans 5:3–5](https://www.lds.org/scriptures/nt/rom/5.3-5); Romans 8:24–25; [2 Corinthians 6:1–10](https://www.lds.org/scriptures/nt/2-cor/6.1-10); [James 5:10–11](https://www.lds.org/scriptures/nt/james/5.10-11); [Psalm 46:10](https://www.lds.org/scriptures/nt/james/46.10); Topical Guide, "Patience, Patient, Patiently"
+### Invitations
 
-### Activities / Challenges
+* This Sunday, pay special attention to the sacrament prayers. If you haven't already, pray about and study these prayers. The sacrament prayers are sacred. They aren't just scripture, they are a part of an ordinance.
 
-Using the ratings below, complete the following exercise:
+#### Prayer on the Bread
+> > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this bread to the souls of all those who partake of it, that they may eat in remembrance of the body of thy Son, and witness unto thee, O God, the Eternal Father, that they are willing to take upon them the name of thy Son, and always remember him and keep his commandments which he has given them; that they may always have his Spirit to be with them. Amen.
 
-#### Response Key
+#### Prayer on the Water
+> > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this wine to the souls of all those who drink of it, that they may do it in remembrance of the blood of thy Son, which was shed for them; that they may witness unto thee, O God, the Eternal Father, that they do always remember him, that they may have his Spirit to be with them. Amen.
 
-Rating | Meaning
-:---|:---  
-1 | never
-2 | sometimes
-3 | often
-4 | almost always
-5 | always
+Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_? Write down your thoughts. (For help, you could reference and study Elder Gong's talk, ["Always Remember Him."](https://www.lds.org/general-conference/2016/04/always-remember-him?lang=eng))
 
-* ____. I wait patiently for the blessings and promises of the Lord to be fulfilled. (2 Nephi 10:17)
-* ____. I am able to wait for things without getting upset or frustrated. (Romans 8:25)
-* ____. I am patient and long-suffering with the challenges of being a missionary. (Alma 17:11)
-* ____. I am patient with the faults and weaknesses of others. (Romans 15:1)
-* ____. I am patient with myself and rely on the Lord as I work to overcome my weaknesses. (Ether 12:27)
-* ____. I face adversity and afflictions calmly and hopefully. (Alma 34:40–41)
+Take this week and write down, each day, how you saw the Lord's hand in your life. Seek to _recognize_ and _remember_ how the Lord is influencing, blessing, and guiding your life. Record these impressions. This is what President Eyring said about trying this same experience:
 
-## August 6: Humility
+> > I wrote down a few lines every day for years. I never missed a day no matter how tired I was or how early I would have to start the next day. Before I would write, I would ponder this question: “Have I seen the hand of God reaching out to touch us or our children or our family today?” As I kept at it, something began to happen. As I would cast my mind over the day, I would see evidence of what God had done for one of us that I had not recognized in the busy moments of the day. As that happened, and it happened often, I realized that trying to remember had allowed God to show me what He had done.
 
-### Reflection Questions
-[See questions below]
+> > More than gratitude began to grow in my heart. Testimony grew. I became ever more certain that our Heavenly Father hears and answers prayers. I felt more gratitude for the softening and refining that come because of the Atonement of the Savior Jesus Christ. And I grew more confident that the Holy Ghost can bring all things to our remembrance—even things we did not notice or pay attention to when they happened.
+[Henry B. Eyring, "O Rememeber, Remember," October, 2007.](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
 
-### Study
-[2 Nephi 9:28–29](https://www.lds.org/scriptures/bofm/2-ne/9.28-29); [Mosiah 4:11–12](https://www.lds.org/scriptures/bofm/mosiah/4.11-12); [Alma 5:26–29](https://www.lds.org/scriptures/bofm/alma/5.26-29); [Alma 26:12](https://www.lds.org/scriptures/bofm/alma/26.12); [Matthew 26:39](https://www.lds.org/scriptures/nt/matt/26.39); Topical Guide, “Humility, Humble”; [Alma 32:1–16](https://www.lds.org/scriptures/bofm/alma/32.1-16); [Ether 12:27](https://www.lds.org/scriptures/bofm/ether/12.27); [D&C 12:8](https://www.lds.org/scriptures/dc-testament/dc/12.8); [D&C 67:10](https://www.lds.org/scriptures/dc-testament/dc/67.10); [D&C 112:10](https://www.lds.org/scriptures/dc-testament/dc/112.10); [D&C 136:32–33](https://www.lds.org/scriptures/dc-testament/dc/136.32-33); [Matthew 23:12](https://www.lds.org/scriptures/nt/matt/23.12); [1 Nephi 15:7–11](https://www.lds.org/scriptures/bofm/1-ne/15.7-11); [1 Nephi 16:1–3](https://www.lds.org/scriptures/bofm/1-ne/16.1-3); [2 Timothy 3:1–4](https://www.lds.org/scriptures/nt/2-tim/3.1-4); [Proverbs 13:10](https://www.lds.org/scriptures/ot/prov/13.10); [Proverbs 15:10](https://www.lds.org/scriptures/ot/prov/15.10); [Proverbs 28:25](https://www.lds.org/scriptures/ot/prov/28.25)
-
-### Activities / Challenges
-
-Using the ratings below, complete the following exercise:
-
-#### Response Key
-
-Rating | Meaning
-:---|:---  
-1 | never
-2 | sometimes
-3 | often
-4 | almost always
-5 | always
-
-* ____. I am meek and lowly in heart. (Matthew 11:29)
-* ____. I rely on the Lord for help. (Alma 26:12)
-* ____. I am sincerely grateful for the blessings I have received from the Lord. (Alma 7:23)
-* ____. My prayers are earnest and sincere. (Enos 1:4)
-* ____. I appreciate direction from my leaders or teachers. (2 Nephi 9:28)
-* ____. I strive to be submissive to the Lord’s will, whatever it may be. (Mosiah 24:15)
-
+Record any impressions or answers you receive.
