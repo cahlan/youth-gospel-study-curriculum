@@ -2,19 +2,27 @@
 
 ### Introduction
 
-One of the promises the Lord makes to his faithful saints is that He will protect them. 
+Lord promises to his faithful saints is that He will protect them. This week we'll discuss what the Lord's protection looks like, how we can assure ourselves of his protection, and how we can protect ourselves and our loved ones from physical and spiritual danger.
 
 ### Study
 
-
+Study the accounts below of the Lord protecting his people. 
 
 #### Scriptures
 
-* Nephi
-* People of King Benjamin
-* Alma
-* Defense against the Lamanites (war chapter)
-* War against gaddianton robbers
+##### Nephi and his brothers protected while retrieving the brass plates
+
+* 1 Nephi 3:10-29(https://www.lds.org/scriptures/bofm/1-ne/3.10-29); 4(https://www.lds.org/scriptures/bofm/1-ne/4); 5:5-8(https://www.lds.org/scriptures/bofm/1-ne/5.5-8)
+In the experience, how did the Lord protect Nephi and his brothers? How did He help them succeed in spite of what was a very difficult undertaking? Why didn't He make it easy for them?
+
+##### Nephi is protected from starvation and from his brothers
+
+* 1 Nephi 7:16-21
+* 1 Nephi 16:18-23, 30-31
+* 1 Nephi 16:35-39
+* 1 Nephi 17:48-55
+* 1 Nephi 18:8-22
+
 
 #### Other
 
