@@ -18,7 +18,7 @@ In the experience, how did the Lord protect Nephi and his brothers? How did He h
 
 ##### Nephi is protected from starvation and from his brothers
 
-What dangers faced Nephi and his family during their journey? Why didn't the Lord remove those dangers automatically and make their way easier? What was the consequenc
+What dangers faced Nephi and his family during their journey? Why didn't the Lord remove those dangers automatically and make their way easier? What were the consequences of disobedience?
 
 * [1 Nephi 7:16-21](https://www.lds.org/scriptures/bofm/1-ne/7.16-21)
 * [1 Nephi 16:18-23, 30-31](https://www.lds.org/scriptures/bofm/1-ne/16.18-23,30-31)
@@ -28,13 +28,19 @@ What dangers faced Nephi and his family during their journey? Why didn't the Lor
 
 #### The Lord protects the people of Ammon
 
+How did the Lord protect the Anti-Lehi-Nephites? 
+
 * [Alma 27:1-15](https://www.lds.org/scriptures/bofm/alma/27.1-15)
 
 #### Moroni is inspired to create the Title of Liberty
 
+What were the conditions upon which the Nephites would be able to maintain their liberty? Who or what threatened them?
+
 * [Alma 46:1-18](https://www.lds.org/scriptures/bofm/alma/46.1-18)
 
 #### The Nephites are protected from the siege of the Gadianton Robbers
+
+How did the Lord help the Nephites to face so great a threat? How did He inspire and give courage to the hearts of the Nephites who faced so terrible a foe?
 
 * [3 Nephi 4](https://www.lds.org/scriptures/bofm/3-ne/4)
 
