@@ -71,6 +71,6 @@ In the April 2018 General Conference, President Nelson's said this:
 
 > > "[In] coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.
 
-My beloved brothers and sisters, I plead with you to increase your spiritual capacity to receive revelation. Let this Easter Sunday be a defining moment in your life. Choose to do the spiritual work required to enjoy the gift of the Holy Ghost and hear the voice of the Spirit more frequently and more clearly."
+> > My beloved brothers and sisters, I plead with you to increase your spiritual capacity to receive revelation. Let this Easter Sunday be a defining moment in your life. Choose to do the spiritual work required to enjoy the gift of the Holy Ghost and hear the voice of the Spirit more frequently and more clearly."
 
 What "spiritual work" is President Nelson talking about? How can you hear the voice of the Spirit more frequently and more clearly?
