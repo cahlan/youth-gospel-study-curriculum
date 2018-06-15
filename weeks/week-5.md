@@ -2,7 +2,7 @@
 
 ### Introduction
 
-Lord promises to his faithful saints is that He will protect them. This week we'll discuss what the Lord's protection looks like, how we can assure ourselves of his protection, and how we can protect ourselves and our loved ones from physical and spiritual danger.
+Lord promises to his faithful saints is that He will protect them. This week we'll discuss what the Lord's protection looks like, how we can assure ourselves of his protection, and how we, with the Lord's help, can protect ourselves and our loved ones from physical and spiritual danger.
 
 ### Study
 
