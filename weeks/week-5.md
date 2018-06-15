@@ -30,6 +30,14 @@ What dangers faced Nephi and his family during their journey? Why didn't the Lor
 
 * [Alma 27:1-15](https://www.lds.org/scriptures/bofm/alma/27.1-15)
 
+#### Moroni is inspired to create the Title of Liberty
+
+* [Alma 46:1-18](https://www.lds.org/scriptures/bofm/alma/46.1-18)
+
+#### The Nephites are protected from the siege of the Gadianton Robbers
+
+* [3 Nephi 4](https://www.lds.org/scriptures/bofm/3-ne/4)
+
 #### Other
 
 Study the talk, ["Safety for the Soul,"](https://www.lds.org/general-conference/2009/10/safety-for-the-soul?lang=eng) from Elder Holland.
