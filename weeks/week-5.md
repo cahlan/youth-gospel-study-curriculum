@@ -18,19 +18,21 @@ In the experience, how did the Lord protect Nephi and his brothers? How did He h
 
 ##### Nephi is protected from starvation and from his brothers
 
+What dangers faced Nephi and his family during their journey? Why didn't the Lord remove those dangers automatically and make their way easier? What was the consequenc
+
 * [1 Nephi 7:16-21](https://www.lds.org/scriptures/bofm/1-ne/7.16-21)
 * [1 Nephi 16:18-23, 30-31](https://www.lds.org/scriptures/bofm/1-ne/16.18-23,30-31)
 * [1 Nephi 16:35-39](https://www.lds.org/scriptures/bofm/1-ne/16.35-39)
 * [1 Nephi 17:48-55](https://www.lds.org/scriptures/bofm/1-ne/17.48-55)
 * [1 Nephi 18:8-22](https://www.lds.org/scriptures/bofm/1-ne/18.8-22)
 
+#### The Lord protects the people of Ammon
+
+* [Alma 27:1-15](https://www.lds.org/scriptures/bofm/alma/27.1-15)
 
 #### Other
 
-Study Elder Bednar's talk, "Exceeding Great and Precious Promises," and write down what Elder Bednar teaches about how to remember the "essential spiritual priorities."
-
-Some other talks you could study,
-* President Eyring, ["O Remember, Remember"](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
+Study the talk, ["Safety for the Soul,"](https://www.lds.org/general-conference/2009/10/safety-for-the-soul?lang=eng) from Elder Holland.
 
 #### Reflection
 
@@ -38,19 +40,23 @@ Reflect on this line from a familiar hymn:
 
 ##### "Keep the commandments. In this there is safety and peace."
 
-Why does keeping the commandments bring safety? Why does keeping the commandments bring peace?"
+Now answer these questions:
 
+* Why does keeping the commandments bring safety? Safety from what, exactly?
+* Why does keeping the commandments bring peace?" Peace as opposed to what, exactly?
 
-
-Do we need help remembering? Who helps us remember? Find scriptures that explain _how_ and _who_ helps us to remember.
+Create a list of protections the Lord has given us in our day. Remember, some of them may be things we readily see or observe, others may be things passed down to us by others, and yet others might be things that are eternal in nature. List of the varying kinds of protections that the Lord has provided for you.
 
 ### Invitations
 
+Think about the dangers you face in your life today. What calamities are there that you might encounter? Are there temporal or spiritual dangers that you've seen, perhaps even affecting or hurting others?
 
+How will you avoid these dangers? What do you need to do this week to ensure that you and those you love are safe?
 
-> > I wrote down a few lines every day for years. I never missed a day no matter how tired I was or how early I would have to start the next day. Before I would write, I would ponder this question: “Have I seen the hand of God reaching out to touch us or our children or our family today?” As I kept at it, something began to happen. As I would cast my mind over the day, I would see evidence of what God had done for one of us that I had not recognized in the busy moments of the day. As that happened, and it happened often, I realized that trying to remember had allowed God to show me what He had done.
+In the April 2018 General Conference, President Nelson's said this:
 
-> > More than gratitude began to grow in my heart. Testimony grew. I became ever more certain that our Heavenly Father hears and answers prayers. I felt more gratitude for the softening and refining that come because of the Atonement of the Savior Jesus Christ. And I grew more confident that the Holy Ghost can bring all things to our remembrance—even things we did not notice or pay attention to when they happened.
-[Henry B. Eyring, "O Rememeber, Remember," October, 2007.](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
+> > "[In] coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.
 
-Record any impressions or answers you receive.
+My beloved brothers and sisters, I plead with you to increase your spiritual capacity to receive revelation. Let this Easter Sunday be a defining moment in your life. Choose to do the spiritual work required to enjoy the gift of the Holy Ghost and hear the voice of the Spirit more frequently and more clearly."
+
+What "spiritual work" is President Nelson talking about? How can you hear the voice of the Spirit more frequently and more clearly?
