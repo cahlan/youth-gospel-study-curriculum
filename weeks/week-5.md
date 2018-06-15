@@ -46,7 +46,10 @@ How did the Lord help the Nephites to face so great a threat? How did He inspire
 
 #### Other
 
-Study the talk, ["Safety for the Soul,"](https://www.lds.org/general-conference/2009/10/safety-for-the-soul?lang=eng) from Elder Holland.
+Study the following talks:
+
+* ["Safety for the Soul,"](https://www.lds.org/general-conference/2009/10/safety-for-the-soul?lang=eng) by Elder Holland
+* ["The Way to Safety,"](https://www.lds.org/ensign/2015/10/the-way-to-safety?lang=eng) by President Eyring
 
 #### Reflection
 
