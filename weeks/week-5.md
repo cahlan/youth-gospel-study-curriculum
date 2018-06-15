@@ -12,16 +12,17 @@ Study the accounts below of the Lord protecting his people.
 
 ##### Nephi and his brothers protected while retrieving the brass plates
 
-* 1 Nephi 3:10-29(https://www.lds.org/scriptures/bofm/1-ne/3.10-29); 4(https://www.lds.org/scriptures/bofm/1-ne/4); 5:5-8(https://www.lds.org/scriptures/bofm/1-ne/5.5-8)
+* [1 Nephi 3:10-29](https://www.lds.org/scriptures/bofm/1-ne/3.10-29); [4](https://www.lds.org/scriptures/bofm/1-ne/4); [5:5-8](https://www.lds.org/scriptures/bofm/1-ne/5.5-8)
+
 In the experience, how did the Lord protect Nephi and his brothers? How did He help them succeed in spite of what was a very difficult undertaking? Why didn't He make it easy for them?
 
 ##### Nephi is protected from starvation and from his brothers
 
-* 1 Nephi 7:16-21
-* 1 Nephi 16:18-23, 30-31
-* 1 Nephi 16:35-39
-* 1 Nephi 17:48-55
-* 1 Nephi 18:8-22
+* [1 Nephi 7:16-21](https://www.lds.org/scriptures/bofm/1-ne/7.16-21)
+* [1 Nephi 16:18-23, 30-31](https://www.lds.org/scriptures/bofm/1-ne/16.18-23,30-31)
+* [1 Nephi 16:35-39](https://www.lds.org/scriptures/bofm/1-ne/16.35-39)
+* [1 Nephi 17:48-55](https://www.lds.org/scriptures/bofm/1-ne/17.48-55)
+* [1 Nephi 18:8-22](https://www.lds.org/scriptures/bofm/1-ne/18.8-22)
 
 
 #### Other
