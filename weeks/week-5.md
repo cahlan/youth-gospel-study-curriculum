@@ -2,7 +2,7 @@
 
 ### Introduction
 
-Lord promises to his faithful saints is that He will protect them. This week we'll discuss what the Lord's protection looks like, how we can assure ourselves of his protection, and how we, with the Lord's help, can protect ourselves and our loved ones from physical and spiritual danger.
+The Lord promises to his faithful saints is that He will protect them. This week we'll discuss what the Lord's protection looks like, how we can assure ourselves of his protection, and how we, with the Lord's help, can protect ourselves and our loved ones from physical and spiritual danger.
 
 ### Study
 
@@ -18,31 +18,31 @@ In the experience, how did the Lord protect Nephi and his brothers? How did He h
 
 ##### Nephi is protected from starvation and from his brothers
 
-What dangers faced Nephi and his family during their journey? Why didn't the Lord remove those dangers automatically and make their way easier? What were the consequences of disobedience?
-
 * [1 Nephi 7:16-21](https://www.lds.org/scriptures/bofm/1-ne/7.16-21)
 * [1 Nephi 16:18-23, 30-31](https://www.lds.org/scriptures/bofm/1-ne/16.18-23,30-31)
 * [1 Nephi 16:35-39](https://www.lds.org/scriptures/bofm/1-ne/16.35-39)
 * [1 Nephi 17:48-55](https://www.lds.org/scriptures/bofm/1-ne/17.48-55)
 * [1 Nephi 18:8-22](https://www.lds.org/scriptures/bofm/1-ne/18.8-22)
 
-#### The Lord protects the people of Ammon
+What dangers faced Nephi and his family during their journey? Why didn't the Lord remove those dangers automatically and make their way easier? What were the consequences of disobedience?
 
-How did the Lord protect the Anti-Lehi-Nephites? 
+#### The Lord protects the people of Ammon
 
 * [Alma 27:1-15](https://www.lds.org/scriptures/bofm/alma/27.1-15)
 
-#### Moroni is inspired to create the Title of Liberty
+How did the Lord protect the Anti-Lehi-Nephites? 
 
-What were the conditions upon which the Nephites would be able to maintain their liberty? Who or what threatened them?
+#### Moroni is inspired to create the Title of Liberty
 
 * [Alma 46:1-18](https://www.lds.org/scriptures/bofm/alma/46.1-18)
 
+What were the conditions upon which the Nephites would be able to maintain their liberty? Who or what threatened them?
+
 #### The Nephites are protected from the siege of the Gadianton Robbers
 
-How did the Lord help the Nephites to face so great a threat? How did He inspire and give courage to the hearts of the Nephites who faced so terrible a foe?
-
 * [3 Nephi 4](https://www.lds.org/scriptures/bofm/3-ne/4)
+
+How did the Lord help the Nephites to face so great a threat? How did He inspire and give courage to the hearts of the Nephites who faced so terrible a foe?
 
 #### Other
 
@@ -55,7 +55,7 @@ Study the following:
 
 Reflect on this line from a familiar hymn: 
 
-##### "Keep the commandments. In this there is safety and peace."
+##### "Keep the commandments. In this there is safety and peace." (Hymns, #303)
 
 Now answer these questions:
 
@@ -76,4 +76,4 @@ In the April 2018 General Conference, President Nelson's said this:
 
 > > My beloved brothers and sisters, I plead with you to increase your spiritual capacity to receive revelation. Let this Easter Sunday be a defining moment in your life. Choose to do the spiritual work required to enjoy the gift of the Holy Ghost and hear the voice of the Spirit more frequently and more clearly."
 
-What "spiritual work" is President Nelson talking about? How can you hear the voice of the Spirit more frequently and more clearly?
+What "spiritual work" is President Nelson talking about? How can you hear the voice of the Spirit more frequently and more clearly this week? Make a plan for how you will improve this week.
