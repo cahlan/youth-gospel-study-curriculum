@@ -17,16 +17,16 @@ Riches, clothing, scornful, persecute, envyings, inequality, lack of attention t
 * [Helaman 3:1, 33-34, 36](https://www.lds.org/scriptures/bofm/hel/3.1,33-34,36); [4:12](https://www.lds.org/scriptures/bofm/hel/4.12); [7:26](https://www.lds.org/scriptures/bofm/hel/7.26); [13:22, 27](https://www.lds.org/scriptures/bofm/hel/13.22,27)
 * [3 Nephi 6:10, 13, 15](https://www.lds.org/scriptures/bofm/3-ne/6.10,13,15)
 * [4 Nephi 1:24](https://www.lds.org/scriptures/bofm/4-ne/1.24)
-
+---
 * [Alma 5:28, 53](https://www.lds.org/scriptures/bofm/alma/5.28,53)
-
+---
 * [Jacob 2:13-21](https://www.lds.org/scriptures/bofm/jacob/2.13-21)
-
+---
 * [Alma 31:25, 27](https://www.lds.org/scriptures/bofm/alma/31.25,27)
-
+---
 * [2 Nephi 28:12-15](https://www.lds.org/scriptures/bofm/2-ne/28.12-15)
 * [Mormon 8:28, 36](https://www.lds.org/scriptures/bofm/morm/8.28,36)
-
+---
 * [1 Nephi 12:18-19](https://www.lds.org/scriptures/bofm/1-ne/12.18-19)
 
 #### Other
