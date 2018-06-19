@@ -10,23 +10,31 @@ As you study the following scriptures, make a list of the ways that pride manife
 
 #### Scriptures
 
-Riches, clothing, scornful, persecute, envyings, inequality, lack of attention to the poor
-
 * [Jacob 1:16](https://www.lds.org/scriptures/bofm/jacob/1.16)
 * [Alma 1:6, 32](https://www.lds.org/scriptures/bofm/alma/1.6,32); [4:6-13](https://www.lds.org/scriptures/bofm/alma/4.6-13); [7:6](https://www.lds.org/scriptures/bofm/alma/7.6); [38:11](https://www.lds.org/scriptures/bofm/alma/38.11)
 * [Helaman 3:1, 33-34, 36](https://www.lds.org/scriptures/bofm/hel/3.1,33-34,36); [4:12](https://www.lds.org/scriptures/bofm/hel/4.12); [7:26](https://www.lds.org/scriptures/bofm/hel/7.26); [13:22, 27](https://www.lds.org/scriptures/bofm/hel/13.22,27)
 * [3 Nephi 6:10, 13, 15](https://www.lds.org/scriptures/bofm/3-ne/6.10,13,15)
 * [4 Nephi 1:24](https://www.lds.org/scriptures/bofm/4-ne/1.24)
+
 ---
+
 * [Alma 5:28, 53](https://www.lds.org/scriptures/bofm/alma/5.28,53)
+
 ---
+
 * [Jacob 2:13-21](https://www.lds.org/scriptures/bofm/jacob/2.13-21)
+
 ---
+
 * [Alma 31:25, 27](https://www.lds.org/scriptures/bofm/alma/31.25,27)
+
 ---
+
 * [2 Nephi 28:12-15](https://www.lds.org/scriptures/bofm/2-ne/28.12-15)
 * [Mormon 8:28, 36](https://www.lds.org/scriptures/bofm/morm/8.28,36)
+
 ---
+
 * [1 Nephi 12:18-19](https://www.lds.org/scriptures/bofm/1-ne/12.18-19)
 
 #### Other
