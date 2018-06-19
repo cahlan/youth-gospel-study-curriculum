@@ -62,6 +62,8 @@ To serve his children gladly with a pure and gentle love.
 Be thou humble in thy longing, and the Lord thy God shall take thee,
 Shall take thee home at last to ever dwell with him above.
 
-Make a list of the blessings received by those who are humble. Do you desire these blessings? How will you become more humble?
+Make a list of the blessings received by those who are humble. Do you desire these blessings?
+
+This week, think about an experience when you relied on God for help. Think about a time when you were wrong about someone. Share these experiences with a loved one. 
 
 Record any impressions or answers you receive.
