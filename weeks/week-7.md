@@ -45,6 +45,8 @@ Now, consider your relationship with God. How is pride getting in the way of you
 
 Mormon told his son Moroni, "Behold, the pride of this nation [...] hath proven their destruction."[(Moroni 8:27)](https://www.lds.org/scriptures/bofm/moro/8.27). If the sin of pride can cause the entire destruction of a civilization, can it cause the downfall of a city? How about a community? A school? A neighborhood? A family? Can it cause your destruction?
 
+![Pride others you God](https://d3vv6lp55qjaqc.cloudfront.net/items/1s3K1n271n1B0u3u353L/Image%202018-06-19%20at%208.52.12%20AM.png?X-CloudApp-Visitor-Id=fd8c4196c377270ccf750494a7561e36&v=259ee15f)
+
 ### Invitations
 
 The opposite of pride is humility. Whereas the proud boast in their own strength and resist God's commandments and counsel, the humble accept his will and strive to do all they can to become more like him.
