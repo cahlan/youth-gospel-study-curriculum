@@ -2,11 +2,11 @@
 
 ### Introduction
 
-Look at the definition of power, from the online Guide to the Scriptures from LDS.org: 
+Look at the definition of **power** from the online Guide to the Scriptures from LDS.org: 
 
 > > The ability to do something. [...] In the scriptures, power is often connected with the power of God or the power of heaven.
 
-We'll study and learn more about the power of God, as manifest through right to act _for_ God is contained in the priesthood, the power God gives to man to be able to do cetain things, and how the power of heaven is manifest to us on the earth. 
+We'll study and learn more about the power of God, as manifest through right to act _for_ God is contained in the priesthood, the power God gives to mankind to be able to do cetain things, and how the power of heaven is manifest to us on the earth. 
 
 ### Study
 
