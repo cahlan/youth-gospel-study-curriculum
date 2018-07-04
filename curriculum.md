@@ -11,6 +11,6 @@ Week | Topic
 [Week 5](weeks/week-5.md) | ["Protect this People"](weeks/week-5.md)
 [Week 6](weeks/week-6.md) | [Catch-up Week](weeks/week-6.md)
 [Week 7](weeks/week-7.md) | ["Beware of Pride"](weeks/week-7.md)
-[Week 8] | [Coming Soon]
+[Week 8](weeks/week-8.md) | [Power and Authority](weeks/week-8.md)
 [Week 9] | [Coming Soon]
 [Week 10] | [Coming Soon]
