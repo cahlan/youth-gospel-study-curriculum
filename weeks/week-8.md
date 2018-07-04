@@ -14,16 +14,19 @@ Study the scriptures and accounts below. Ask yourself in each situation how the 
 
 #### Scriptures
 
-* Nephi and his brothers are given power to accomplish God's commandments
+* Nephi and his family are given power to accomplish God's commandments
  * MORE
  * [1 Nephi 5:8](https://www.lds.org/scriptures/bofm/1-ne/5.8)
-* Nephi speaks w/ power to his brothers
+* Nephi is given power in his dealings with his brothers
   * [1 Nephi 2:14](https://www.lds.org/scriptures/bofm/1-ne/2.14,23)
+  * [1 Nephi 17:48,52,54](https://www.lds.org/scriptures/bofm/1-ne/17.48,52,54)
   * MORE
 * Mosiah and Nephites guided by the power of God
- * Omni 1:13
+ * [Omni 1:13](https://www.lds.org/scriptures/bofm/omni/1.13)
+* The sons of Mosiah teach with the power and authority of God, [Alma 17:2-3](https://www.lds.org/scriptures/bofm/alma/17.2-3)
 * King Benjamin speaks w/ power
  * Words of Mormon 1:17
+* Nephi teaches with great power and authority [3 Nephi 7:15-20](https://www.lds.org/scriptures/bofm/3-ne/7.15-20)
 
 Satan shall have no power over the hearts of the children of men: 1 Nephi 22:15,17,23-24,26; 30:18
 When one speaks by the power of the Holy Ghost, it carries it to the hearts of the children of men: 2 Nephi 33:1
@@ -31,43 +34,29 @@ Servants are given power to work in his vineyard Jacob 6:2
 
 #### Other
 
-Study Elder Bednar's talk, "Exceeding Great and Precious Promises," and write down what Elder Bednar teaches about how to remember the "essential spiritual priorities."
+Study Elder Christofferson's talk, ["The Power of Covenants"](https://www.lds.org/general-conference/2009/04/the-power-of-covenants?lang=eng) from the 2009 April General Conference.
+* What does Elder Christofferson teach as a key means to access God's power in our lives?
+* Why does making and keeping covenants lead to power?
 
-Some other talks you could study,
-* President Eyring, ["O Remember, Remember"](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
+Study Elder Anderson's talk, ["Power in the Priesthood"](https://www.lds.org/general-conference/2013/10/power-in-the-priesthood?lang=eng) from the 2013 October General Conference. 
+* How is God's priesthood power a blessing for all: men, women, and children alike?
+* What else did you learn about how God's power and his priesthood are used to bless your life?
+* How do you qualify for those blessings?
 
 #### Reflection
 
-Reflect on the things the Lord and his prophets consistently plead with the people to remember:
-* Covenants and Promises of the Lord
-* Warnings
-* The words of "fathers" or ancestors
-* The Lord's dealings with "fathers" or ancestors
-* Commandments and penalties
-* Our dependence on God
-* The mercy of God
+As we've seen, God's power is given to all his children as they ask and qualify for that power in their lives. Consider what in your life might be _keeping_ you from receiving God's power. 
 
-What keeps us you from remembering? What could you do better to remember the "spiritual priorities" and things you read in the scriptures?
+For example, President Nelson, in a BYU devotional focused on music, said the following:
 
-Do we need help remembering? Who helps us remember? Find scriptures that explain _how_ and _who_ helps us to remember.
+> > Dear brothers and sisters, please fill your minds with worthy sights and sounds. Cultivate your precious gift of the Holy Ghost. Protect it as the priceless gift that it is. Carefully listen for its quiet communication. You will be spiritually stronger if you do. You know the proverb “As [a man] thinketh in his heart, so is he” (Proverbs 23:7). As you control your thoughts, you control your actions. Indeed, worthy music can provide **_power and protection_** for your soul. (May 4, 2008. Retrieved from https://speeches.byu.edu/talks/russell-m-nelson_power-protection-provided-worthy-music/. Emphasis added)
+
+What other things, activities, habits or rituals can provide power and protection for your soul?
+
+Is there anything that you are doing (or not doing) that's keeping you from receiving God's power?
 
 ### Invitations
 
-* This Sunday, pay special attention to the sacrament prayers. If you haven't already, pray about and study these prayers. The sacrament prayers are sacred. They aren't just scripture, they are a part of an ordinance.
-
-#### Prayer on the Bread
-> > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this bread to the souls of all those who partake of it, that they may eat in remembrance of the body of thy Son, and witness unto thee, O God, the Eternal Father, that they are willing to take upon them the name of thy Son, and always remember him and keep his commandments which he has given them; that they may always have his Spirit to be with them. Amen.
-
-#### Prayer on the Water
-> > O God, the Eternal Father, we ask thee in the name of thy Son, Jesus Christ, to bless and sanctify this wine to the souls of all those who drink of it, that they may do it in remembrance of the blood of thy Son, which was shed for them; that they may witness unto thee, O God, the Eternal Father, that they do always remember him, that they may have his Spirit to be with them. Amen.
-
-Ponder on the way the Lord uses the term "remember" here. What is He asking you to remember? How do we _always_ remember him? What is the result of remembering him _always_? Write down your thoughts. (For help, you could reference and study Elder Gong's talk, ["Always Remember Him."](https://www.lds.org/general-conference/2016/04/always-remember-him?lang=eng))
-
-Take this week and write down, each day, how you saw the Lord's hand in your life. Seek to _recognize_ and _remember_ how the Lord is influencing, blessing, and guiding your life. Record these impressions. This is what President Eyring said about trying this same experience:
-
-> > I wrote down a few lines every day for years. I never missed a day no matter how tired I was or how early I would have to start the next day. Before I would write, I would ponder this question: “Have I seen the hand of God reaching out to touch us or our children or our family today?” As I kept at it, something began to happen. As I would cast my mind over the day, I would see evidence of what God had done for one of us that I had not recognized in the busy moments of the day. As that happened, and it happened often, I realized that trying to remember had allowed God to show me what He had done.
-
-> > More than gratitude began to grow in my heart. Testimony grew. I became ever more certain that our Heavenly Father hears and answers prayers. I felt more gratitude for the softening and refining that come because of the Atonement of the Savior Jesus Christ. And I grew more confident that the Holy Ghost can bring all things to our remembrance—even things we did not notice or pay attention to when they happened.
-[Henry B. Eyring, "O Rememeber, Remember," October, 2007.](https://www.lds.org/general-conference/2007/10/o-remember-remember?lang=eng)
+Study "For the Strength of the Youth" pamphlet and make a list of areas you feel you can improve in your life. Remember, God's power is accessible to those who ask for it and who live worthily of it. Make a plan as to how you will improve this week.
 
 Record any impressions or answers you receive.
