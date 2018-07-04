@@ -2,11 +2,11 @@
 
 ### Introduction
 
-Look at the definition of **power** from the online Guide to the Scriptures from LDS.org: 
+Look at the definition of **power** from the online Guide to the Scriptures from [LDS.org](https://www.lds.org/scriptures/gs/power?lang=eng): 
 
 > > The ability to do something. [...] In the scriptures, power is often connected with the power of God or the power of heaven.
 
-We'll study and learn more about the power of God, as manifest through right to act _for_ God is contained in the priesthood, the power God gives to mankind to be able to do cetain things, and how the power of heaven is manifest to us on the earth. 
+This week, we'll study and learn more about the power of God, as manifest through right to act _for_ God is contained in the priesthood, the power God gives to mankind to be able to do cetain things, and what you and I need to do to qualify for that power.
 
 ### Study
 
@@ -15,22 +15,28 @@ Study the scriptures and accounts below. Ask yourself in each situation how the 
 #### Scriptures
 
 * Nephi and his family are given power to accomplish God's commandments
- * MORE
- * [1 Nephi 5:8](https://www.lds.org/scriptures/bofm/1-ne/5.8)
+  * [1 Nephi 5:8](https://www.lds.org/scriptures/bofm/1-ne/5.8)
+  * [1 Nephi 4:30-31](https://www.lds.org/scriptures/bofm/1-ne/4.30-31)
 * Nephi is given power in his dealings with his brothers
   * [1 Nephi 2:14](https://www.lds.org/scriptures/bofm/1-ne/2.14,23)
+  * [1 Nephi 7:16-18](https://www.lds.org/scriptures/bofm/1-ne/7.16-18)
   * [1 Nephi 17:48,52,54](https://www.lds.org/scriptures/bofm/1-ne/17.48,52,54)
-  * MORE
 * Mosiah and Nephites guided by the power of God
- * [Omni 1:13](https://www.lds.org/scriptures/bofm/omni/1.13)
+  * [Omni 1:13](https://www.lds.org/scriptures/bofm/omni/1.13)
+* King Benjamin speaks w/ power, [Words of Mormon 1:17](https://www.lds.org/scriptures/bofm/w-of-m/1.17)
 * The sons of Mosiah teach with the power and authority of God, [Alma 17:2-3](https://www.lds.org/scriptures/bofm/alma/17.2-3)
-* King Benjamin speaks w/ power
- * Words of Mormon 1:17
+* Alma and Almulek are blessed with power to break their bonds, [Alma 14:26](https://www.lds.org/scriptures/bofm/alma/14.26)
+* The Nephites are blessed with power in their struggles against the Lamanites
+  * [Mosiah 10:10-11](https://www.lds.org/scriptures/bofm/mosiah/10.10-11)
+  * [Mosiah 9:17](https://www.lds.org/scriptures/bofm/mosiah/9.17)
+  * [3 Nephi 4:10](https://www.lds.org/scriptures/bofm/3-ne/4.10)
+  * [Mormon 2:26](https://www.lds.org/scriptures/bofm/morm/2.26)
+  
 * Nephi teaches with great power and authority [3 Nephi 7:15-20](https://www.lds.org/scriptures/bofm/3-ne/7.15-20)
 
-Satan shall have no power over the hearts of the children of men: 1 Nephi 22:15,17,23-24,26; 30:18
-When one speaks by the power of the Holy Ghost, it carries it to the hearts of the children of men: 2 Nephi 33:1
-Servants are given power to work in his vineyard Jacob 6:2
+* Satan shall have no power over the hearts of the children of men: 1 Nephi [22:15,17,23-24,26](https://www.lds.org/scriptures/bofm/1-ne/22.15,17,23-24,26); [30:18](https://www.lds.org/scriptures/bofm/1-ne/30.18)
+* When one speaks by the power of the Holy Ghost, it carries it to the hearts of the children of men: [2 Nephi 33:1](https://www.lds.org/scriptures/bofm/2-ne/33.1)
+* Servants are given power to work in his vineyard, [Jacob 6:2](https://www.lds.org/scriptures/bofm/jacob/6.2)
 
 #### Other
 
