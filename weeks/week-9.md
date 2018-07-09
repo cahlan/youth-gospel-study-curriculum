@@ -18,9 +18,9 @@ As you study the scriptures below, try to understand the following:
 
 * [Mormon 5:9-14](https://www.lds.org/scriptures/bofm/morm/5.9-14)
 * [2 Nephi 3:19](https://www.lds.org/scriptures/bofm/2-ne/3.19)
+* [2 Nephi 25:23](https://www.lds.org/scriptures/bofm/2-ne/25.23)
 * [3 Nephi 26:2](https://www.lds.org/scriptures/bofm/2-ne/26.2,8)
 
-Mormon sees our day: [Mormon 8:35](https://www.lds.org/scriptures/bofm/morm/8.35-37)
 [Ether 8:26](https://www.lds.org/scriptures/bofm/ether/8.26) 
 purpose, that satan might not have power [2 Nephi 30:18](https://www.lds.org/scriptures/bofm/2-ne/30.18)
 [Moroni 10:27-30](https://www.lds.org/scriptures/bofm/moro/10.27-30)
@@ -43,12 +43,22 @@ Book of Ether
 
 #### Other
 
-Elder Holland Safety for the Soul
+Study Elder Holland's talk, ["Safety for the Soul."](https://www.lds.org/general-conference/2009/10/safety-for-the-soul) What were your thoughts, feelings, and impressions as you studied this talk?
 
 #### Reflection
 
-pride cycle
+When Moroni takes over for his father in finishing the record of his people, he reveals that he has seen our day. Read what he wrote in [Mormon 8:35](https://www.lds.org/scriptures/bofm/morm/8.35-37). Was Moroni accurate in his description? Where do you see the things he's describing?
 
+The Book of Mormon clearly describes the fall of the Nephites as a consequence of pride. Although they would repent, they would often grow propserous and allow pride to enter their hearts and corrupt their society. Many have called this progression the "pride cycle." It might be described as follows:
+1. Humble repentance
+2. Blessed and prospered by the Lord
+3. Focus on riches, education, dress, inequality; forgetting of God and despising the poor
+4. Loss of the Spirit and the protection of the Lord; calamities ensue
+5. Return to humility and repentance (see step 1); repeat
+
+Have you seen this pattern in the Book of Mormon? How many times does it occur?
+
+Have you seen this pattern, even at a smaller degree, in your own life? Which step would you say most accurately describes where you are?
 
 ### Invitations
 
