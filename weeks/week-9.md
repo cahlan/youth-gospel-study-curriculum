@@ -10,17 +10,24 @@ This week we'll study more about why the Book of Mormon was written for our day 
 
 ### Study
 
-
+As you study the scriptures below, try to understand the following:
+* Who exactly was the Book of Mormon written for? Who are the audiences?
+* 
 
 #### Scriptures
 
-Mormon 5:9-14
-Mormon 8:35
-2 Nephi 3:19
-Ether 8:26; 2 Nephi 30:18
-3 Nephi 26:2
-3 Nephi 26:8
-Moroni 10:27-30
+* [Mormon 5:9-14](https://www.lds.org/scriptures/bofm/morm/5.9-14)
+* [2 Nephi 3:19](https://www.lds.org/scriptures/bofm/2-ne/3.19)
+* [3 Nephi 26:2](https://www.lds.org/scriptures/bofm/2-ne/26.2,8)
+
+Mormon sees our day: [Mormon 8:35](https://www.lds.org/scriptures/bofm/morm/8.35-37)
+[Ether 8:26](https://www.lds.org/scriptures/bofm/ether/8.26) 
+purpose, that satan might not have power [2 Nephi 30:18](https://www.lds.org/scriptures/bofm/2-ne/30.18)
+[Moroni 10:27-30](https://www.lds.org/scriptures/bofm/moro/10.27-30)
+
+who we'll see at the judgement bar:
+Nephi (2 Nephi 33:11)
+Mormon (Moroni 10:27)
 
 The audiences of the Book of Mormon
 future lamanites
@@ -42,9 +49,6 @@ Elder Holland Safety for the Soul
 
 pride cycle
 
-What keeps us you from remembering? What could you do better to remember the "spiritual priorities" and things you read in the scriptures?
-
-Do we need help remembering? Who helps us remember? Find scriptures that explain _how_ and _who_ helps us to remember.
 
 ### Invitations
 
