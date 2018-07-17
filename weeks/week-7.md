@@ -2,7 +2,7 @@
 
 ### Introduction
 
-One of the promises the Lord makes to his faithful saints is that He will protect them. 
+The sin of pride led to the downfall of the Nephites. Since the Book of Mormon was written for our day, we would do well to understand the pitfalls of pride, its effects on us, and how to avoid this sin in our lives.
 
 ### Study
 
