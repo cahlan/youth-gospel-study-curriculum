@@ -49,6 +49,8 @@ Study Elder Anderson's talk, ["Power in the Priesthood"](https://www.lds.org/gen
 * What else did you learn about how God's power and his priesthood are used to bless your life?
 * How do you qualify for those blessings?
 
+Remember that all good things are ultimately a result of Christ and his Atonement. As Elder Bednar [taught](https://www.lds.org/general-conference/2004/10/in-the-strength-of-the-lord?lang=eng), "Thus, the enabling and strengthening aspect of the Atonement helps us to see and to do and to become good in ways that we could never recognize or accomplish with our limited mortal capacity."
+
 #### Reflection
 
 As we've seen, God's power is given to all his children as they ask and qualify for that power in their lives. Consider what in your life might be _keeping_ you from receiving God's power. 
