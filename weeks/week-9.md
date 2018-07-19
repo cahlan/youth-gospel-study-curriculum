@@ -11,7 +11,7 @@ This week we'll study more about why the Book of Mormon was written for our day 
 ### Study
 
 As you study the scriptures below, try to understand the following:
-* Who exactly was the Book of Mormon written for? Who are the audiences?
+* Who exactly was the Book of Mormon written for? Who are the intended audiences?
 * 
 
 #### Scriptures
@@ -20,6 +20,8 @@ As you study the scriptures below, try to understand the following:
 * [2 Nephi 3:19](https://www.lds.org/scriptures/bofm/2-ne/3.19)
 * [2 Nephi 25:23](https://www.lds.org/scriptures/bofm/2-ne/25.23)
 * [3 Nephi 26:2](https://www.lds.org/scriptures/bofm/2-ne/26.2,8)
+
+---
 
 [Ether 8:26](https://www.lds.org/scriptures/bofm/ether/8.26) 
 purpose, that satan might not have power [2 Nephi 30:18](https://www.lds.org/scriptures/bofm/2-ne/30.18)
