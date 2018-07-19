@@ -10,18 +10,19 @@ This week we'll study more about why the Book of Mormon was written for our day 
 
 ### Study
 
-As you study the scriptures below, try to understand the following:
-* Who exactly was the Book of Mormon written for? Who are the intended audiences?
-* 
+As you study the scriptures below record the answers to the questions posed.
 
 #### Scriptures
+
+Who exactly was the Book of Mormon written for? Who are the intended audiences?
 
 * [Mormon 5:9-14](https://www.lds.org/scriptures/bofm/morm/5.9-14)
 * [2 Nephi 3:19](https://www.lds.org/scriptures/bofm/2-ne/3.19)
 * [2 Nephi 25:23](https://www.lds.org/scriptures/bofm/2-ne/25.23)
 * [3 Nephi 26:2, 8](https://www.lds.org/scriptures/bofm/3-ne/26.2,8)
-Enos 1:15 16; Jarom 1:2
-Mormon 7:1
+* [Enos 1:15-16](https://www.lds.org/scriptures/bofm/enos/1.15-16)
+* [Jarom 1:2](https://www.lds.org/scriptures/bofm/jarom/1.2)
+* [Mormon 7:1](https://www.lds.org/scriptures/bofm/morm/7.1)
 
 ---
 
@@ -37,7 +38,7 @@ You may remember that in a future day we'll actually see face-to-face specific a
 * [2 Nephi 33:11](https://www.lds.org/scriptures/bofm/2-ne/33.11)
 * [Moroni 10:27-30](https://www.lds.org/scriptures/bofm/moro/10.27-30)
 
-A couple of authors also issued pointed warnings to us in the latter days,
+A couple of authors also issued pointed warnings to us in the latter days.
 
 [2 Nephi 33:7-9](https://www.lds.org/scriptures/bofm/2-ne/33.7-9)
 [2 Nephi 25:26](https://www.lds.org/scriptures/bofm/2-ne/25.26)
