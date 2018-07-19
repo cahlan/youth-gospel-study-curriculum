@@ -38,6 +38,8 @@ You may remember that in a future day we'll actually see face-to-face specific a
 * [2 Nephi 33:11](https://www.lds.org/scriptures/bofm/2-ne/33.11)
 * [Moroni 10:27-30](https://www.lds.org/scriptures/bofm/moro/10.27-30)
 
+___
+
 A couple of authors also issued pointed warnings to us in the latter days.
 
 [2 Nephi 33:7-9](https://www.lds.org/scriptures/bofm/2-ne/33.7-9)
