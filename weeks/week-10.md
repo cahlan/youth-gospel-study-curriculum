@@ -64,7 +64,7 @@ In the Alma 33, Alma taught about Moses and the serpent raised in the wilderness
 
 > > 22 If so, wo shall come upon you; but if not so, then cast about your eyes and begin to believe in the Son of God, that he will come to redeem his people, and that he shall suffer and die to atone for their sins; and that he shall rise again from the dead, which shall bring to pass the resurrection, that all men shall stand before him, to be judged at the last and judgment day, according to their works.
 
-Consider yourself in these stories. Would you have been "slothful" or slow to look to the Savior and his words? Are you slow to look to Him now? How can you look more to the Savior? How can you develop more faith in Him and obey his commandments?
+Consider yourself in these stories. Would you have been "slothful" to heed the Savior and his words? Or would you have been quick to obey and look to the Savior and live? Are you slow to look to Him now? How can you look more to the Savior? How can you develop more faith in Him and obey his commandments?
 
 Ponder what the study of the scriptures and the gospel has done for you over the past couple of months. How has the study of the scriptures strengthened your testimony of the Savior? How have you felt the Spirit in greature measure in your life?
 
