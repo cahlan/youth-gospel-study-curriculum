@@ -12,6 +12,7 @@ As you study the following scriptures, make a list of the ways that pride manife
 
 * [Jacob 1:16](https://www.lds.org/scriptures/bofm/jacob/1.16)
 * [Alma 1:6, 32](https://www.lds.org/scriptures/bofm/alma/1.6,32); [4:6-13](https://www.lds.org/scriptures/bofm/alma/4.6-13); [7:6](https://www.lds.org/scriptures/bofm/alma/7.6); [38:11](https://www.lds.org/scriptures/bofm/alma/38.11)
+* [Alma 5:27-28](https://www.lds.org/scriptures/bofm/alma/5.27-28)
 * [Helaman 3:1, 33-34, 36](https://www.lds.org/scriptures/bofm/hel/3.1,33-34,36); [4:12](https://www.lds.org/scriptures/bofm/hel/4.12); [7:26](https://www.lds.org/scriptures/bofm/hel/7.26); [13:22, 27](https://www.lds.org/scriptures/bofm/hel/13.22,27)
 * [3 Nephi 6:10, 13, 15](https://www.lds.org/scriptures/bofm/3-ne/6.10,13,15)
 * [4 Nephi 1:24](https://www.lds.org/scriptures/bofm/4-ne/1.24)
