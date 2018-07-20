@@ -16,6 +16,7 @@ As you study the scriptures below record the answers to the questions posed.
 
 Who exactly was the Book of Mormon written for? Who are the intended audiences?
 
+* [Title page of the Book of Mormon](https://www.lds.org/scriptures/bofm/bofm-title)
 * [Mormon 5:9-14](https://www.lds.org/scriptures/bofm/morm/5.9-14)
 * [2 Nephi 3:19](https://www.lds.org/scriptures/bofm/2-ne/3.19)
 * [2 Nephi 25:23](https://www.lds.org/scriptures/bofm/2-ne/25.23)
