@@ -13,4 +13,4 @@ Week | Topic
 [Week 7](weeks/week-7.md) | ["Beware of Pride"](weeks/week-7.md)
 [Week 8](weeks/week-8.md) | [Power and Authority](weeks/week-8.md)
 [Week 9](weeks/week-9.md) | [Written for Our Day](weeks/week-9.md)
-[Week 10] | [Coming Soon]
+[Week 10](weeks/week-10.md) | [Another Testament of Jesus Christ](weeks/week-10.md)
