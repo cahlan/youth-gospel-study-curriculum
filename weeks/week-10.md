@@ -2,7 +2,7 @@
 
 ### Introduction
 
-On the title page of the Book of Mormon, it is written "to the convincing of the Jew and Gentile that JESUS is the CHRIST, the ETERNAL GOD [...]"
+On the title page of the Book of Mormon, we find this description of this volume of scripture whose purpose is "to the convincing of the Jew and Gentile that JESUS is the CHRIST, the ETERNAL GOD [...]"
 
 This week we'll finish our study program by focusing on how the Book of Mormon teaches us about Christ, how it helps us to come unto Him, and of its role as "Another testament of Jesus Christ."
 
