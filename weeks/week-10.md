@@ -59,11 +59,11 @@ When teaching one of his sons, Alma spoke about the Liahona and the role it play
 
 In the Alma 33, Alma taught about Moses and the serpent raised in the wilderness ([Alma 33:19-22](https://www.lds.org/scriptures/bofm/alma/33.19-22)). Alma taught powerfully about the role of Christ and of our need to look to Him.
 
-> > 20 But few understood the meaning of those things, and this because of the hardness of their hearts. But there were many who were so hardened that they would not look, therefore they perished. Now the reason they would not look is because they did not believe that it would heal them.
+> 20 But few understood the meaning of those things, and this because of the hardness of their hearts. But there were many who were so hardened that they would not look, therefore they perished. Now the reason they would not look is because they did not believe that it would heal them.
 
-> > 21 O my brethren, if ye could be healed by merely casting about your eyes that ye might be healed, would ye not behold quickly, or would ye rather harden your hearts in unbelief, and be slothful, that ye would not cast about your eyes, that ye might perish?
+> 21 O my brethren, if ye could be healed by merely casting about your eyes that ye might be healed, would ye not behold quickly, or would ye rather harden your hearts in unbelief, and be slothful, that ye would not cast about your eyes, that ye might perish?
 
-> > 22 If so, wo shall come upon you; but if not so, then cast about your eyes and begin to believe in the Son of God, that he will come to redeem his people, and that he shall suffer and die to atone for their sins; and that he shall rise again from the dead, which shall bring to pass the resurrection, that all men shall stand before him, to be judged at the last and judgment day, according to their works.
+> 22 If so, wo shall come upon you; but if not so, then cast about your eyes and begin to believe in the Son of God, that he will come to redeem his people, and that he shall suffer and die to atone for their sins; and that he shall rise again from the dead, which shall bring to pass the resurrection, that all men shall stand before him, to be judged at the last and judgment day, according to their works.
 
 Consider yourself in these stories. Would you have been "slothful" to heed the Savior and his words? Or would you have been quick to obey and look to the Savior and live? Are you slow to look to Him now? How can you look more to the Savior? How can you develop more faith in Him and obey his commandments?
 
