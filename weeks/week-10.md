@@ -45,8 +45,9 @@ Look for specific ways that we are taught more about Jesus Christ or about follo
 
 #### Other
 
-Moses and the Serpent; Alma 33:19-20; Helaman 8:14-15
-3 Nephi 20:24
+* [Alma 33:19-20](https://www.lds.org/scriptures/bofm/alma/33.19-20)
+* [Helaman 8:14-15](https://www.lds.org/scriptures/bofm/hel/8.14-15)
+* [3 Nephi 20:24](https://www.lds.org/scriptures/bofm/3-ne/20.24)
 
 ["The Book of Mormon: Another Testament of Jesus Christ--Plain and Precious Things," Boyd K. Packer, April 2005.](https://www.lds.org/general-conference/2005/04/the-book-of-mormon-another-testament-of-jesus-christ-plain-and-precious-things?lang=eng)
 
